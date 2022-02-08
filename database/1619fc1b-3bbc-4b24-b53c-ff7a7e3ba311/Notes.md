@@ -1,0 +1,1 @@
+﻿[Colorado State University - Wikipedia](https://en.wikipedia.org/wiki/Colorado_State_University)

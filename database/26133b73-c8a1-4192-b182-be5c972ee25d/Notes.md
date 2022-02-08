@@ -1,0 +1,1 @@
+﻿[Marjorie Taylor Greene - Wikipedia](https://en.wikipedia.org/wiki/Marjorie_Taylor_Greene)

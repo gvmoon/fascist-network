@@ -1,0 +1,1 @@
+﻿[Joachim von Ribbentrop - Wikipedia](https://en.wikipedia.org/wiki/Joachim_von_Ribbentrop)

@@ -1,0 +1,1 @@
+﻿[List of ambassadors of the United States to the United Nations - Wikipedia](https://en.wikipedia.org/wiki/List_of_ambassadors_of_the_United_States_to_the_United_Nations)

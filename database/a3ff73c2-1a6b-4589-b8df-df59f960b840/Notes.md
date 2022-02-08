@@ -1,0 +1,1 @@
+﻿[Amy Coney Barrett - Wikipedia](https://en.wikipedia.org/wiki/Amy_Coney_Barrett)

@@ -1,0 +1,1 @@
+﻿[Erich Fromm - Wikipedia](https://en.wikipedia.org/wiki/Erich_Fromm)

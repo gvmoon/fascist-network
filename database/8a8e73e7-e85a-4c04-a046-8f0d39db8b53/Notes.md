@@ -1,0 +1,1 @@
+﻿[Kyrsten Sinema - Wikipedia](https://en.wikipedia.org/wiki/Kyrsten_Sinema)

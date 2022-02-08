@@ -1,0 +1,1 @@
+﻿[Willard Van Orman Quine - Wikipedia](https://en.wikipedia.org/wiki/Willard_Van_Orman_Quine)

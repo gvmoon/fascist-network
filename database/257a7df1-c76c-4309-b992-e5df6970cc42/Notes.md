@@ -1,0 +1,1 @@
+﻿[Ayaan Hirsi Ali - Wikipedia](https://en.wikipedia.org/wiki/Ayaan_Hirsi_Ali)

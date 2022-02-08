@@ -1,0 +1,1 @@
+﻿[Charles Caldwell Ryrie - Wikipedia](https://en.wikipedia.org/wiki/Charles_Caldwell_Ryrie)

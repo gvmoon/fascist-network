@@ -1,0 +1,1 @@
+﻿[J. Vernon McGee - Wikipedia](https://en.wikipedia.org/wiki/J._Vernon_McGee)

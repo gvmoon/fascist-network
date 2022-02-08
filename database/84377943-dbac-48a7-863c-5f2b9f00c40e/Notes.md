@@ -1,0 +1,1 @@
+﻿[Trinity College (Connecticut) - Wikipedia](https://en.wikipedia.org/wiki/Trinity_College_(Connecticut))

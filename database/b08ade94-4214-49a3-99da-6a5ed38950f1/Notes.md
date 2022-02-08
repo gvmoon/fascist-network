@@ -1,0 +1,1 @@
+﻿[International General Medical Society for Psychotherapy - Wikipedia](https://en.wikipedia.org/wiki/International_General_Medical_Society_for_Psychotherapy)

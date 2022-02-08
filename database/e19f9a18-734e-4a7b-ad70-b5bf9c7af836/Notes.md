@@ -1,0 +1,1 @@
+﻿[Helen Schucman - Wikipedia](https://en.wikipedia.org/wiki/Helen_Schucman)

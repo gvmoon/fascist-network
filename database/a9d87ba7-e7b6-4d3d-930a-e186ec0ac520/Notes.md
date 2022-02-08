@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/James_A._Lindsay

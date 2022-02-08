@@ -1,0 +1,1 @@
+﻿[Kazimierz Twardowski - Wikipedia](https://en.wikipedia.org/wiki/Kazimierz_Twardowski)

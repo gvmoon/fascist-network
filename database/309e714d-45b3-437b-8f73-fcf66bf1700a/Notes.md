@@ -1,0 +1,1 @@
+﻿[University of Würzburg - Wikipedia](https://en.wikipedia.org/wiki/University_of_W%C3%BCrzburg)

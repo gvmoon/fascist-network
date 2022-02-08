@@ -1,0 +1,1 @@
+﻿[Carl C. Cable - Wikipedia](https://en.wikipedia.org/wiki/Carl_C._Cable)

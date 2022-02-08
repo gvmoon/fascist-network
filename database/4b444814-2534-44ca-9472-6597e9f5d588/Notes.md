@@ -1,0 +1,1 @@
+﻿[Gerard of Ridefort - Wikipedia](https://en.wikipedia.org/wiki/Gerard_of_Ridefort)

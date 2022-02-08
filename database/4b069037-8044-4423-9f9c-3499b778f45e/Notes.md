@@ -1,0 +1,1 @@
+﻿[Charles A. Beard - Wikipedia](https://en.wikipedia.org/wiki/Charles_A._Beard)

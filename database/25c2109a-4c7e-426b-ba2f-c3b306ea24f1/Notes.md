@@ -1,0 +1,1 @@
+﻿[Sterling Hayden - Wikipedia](https://en.wikipedia.org/wiki/Sterling_Hayden)

@@ -1,0 +1,1 @@
+﻿[Margaret_Mead](https://en.wikipedia.org/wiki/Margaret_Mead)

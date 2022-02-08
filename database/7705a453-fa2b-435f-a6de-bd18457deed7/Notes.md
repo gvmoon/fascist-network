@@ -1,0 +1,1 @@
+﻿[Ross Perot - Wikipedia](https://en.wikipedia.org/wiki/Ross_Perot)

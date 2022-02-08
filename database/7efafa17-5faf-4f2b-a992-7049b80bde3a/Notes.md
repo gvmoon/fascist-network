@@ -1,0 +1,1 @@
+﻿[J. Walter Thompson - Wikipedia](https://en.wikipedia.org/wiki/J._Walter_Thompson)

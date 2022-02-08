@@ -1,0 +1,1 @@
+﻿[Lucy Mack Smith - Wikipedia](https://en.wikipedia.org/wiki/Lucy_Mack_Smith)

@@ -1,0 +1,1 @@
+﻿[Karen Elliott House - Wikipedia](https://en.wikipedia.org/wiki/Karen_Elliott_House)

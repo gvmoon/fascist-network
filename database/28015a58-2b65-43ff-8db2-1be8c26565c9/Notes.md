@@ -1,0 +1,1 @@
+﻿[Electronic Arts - Wikipedia](https://en.wikipedia.org/wiki/Electronic_Arts)

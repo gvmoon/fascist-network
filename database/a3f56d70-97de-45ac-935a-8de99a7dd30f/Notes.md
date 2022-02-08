@@ -1,0 +1,1 @@
+﻿[Social science - Wikipedia](https://en.wikipedia.org/wiki/Social_science)

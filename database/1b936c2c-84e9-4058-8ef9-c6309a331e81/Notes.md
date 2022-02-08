@@ -1,0 +1,1 @@
+﻿[Nicholas Kristof - Wikipedia](https://en.wikipedia.org/wiki/Nicholas_Kristof)

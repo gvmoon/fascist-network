@@ -1,0 +1,1 @@
+﻿[Rupert Murdoch - Wikipedia](https://en.wikipedia.org/wiki/Rupert_Murdoch)

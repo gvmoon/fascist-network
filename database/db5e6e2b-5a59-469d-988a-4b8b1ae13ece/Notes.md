@@ -1,0 +1,1 @@
+﻿[John M. Deutch - Wikipedia](https://en.wikipedia.org/wiki/John_M._Deutch)

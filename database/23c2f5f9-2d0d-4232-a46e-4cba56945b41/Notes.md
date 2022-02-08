@@ -1,0 +1,1 @@
+﻿[Yale Law School - Wikipedia](https://en.wikipedia.org/wiki/Yale_Law_School)

@@ -1,0 +1,1 @@
+﻿[Hans Frank - Wikipedia](https://en.wikipedia.org/wiki/Hans_Frank)

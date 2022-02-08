@@ -1,0 +1,1 @@
+﻿[Winebrenner Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Winebrenner_Theological_Seminary)

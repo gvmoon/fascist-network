@@ -1,0 +1,1 @@
+﻿[Adrian Vermeule - Wikipedia](https://en.wikipedia.org/wiki/Adrian_Vermeule)

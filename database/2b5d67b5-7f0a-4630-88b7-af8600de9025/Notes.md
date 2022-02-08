@@ -1,0 +1,1 @@
+﻿[Emma Curtis Hopkins - Wikipedia](https://en.wikipedia.org/wiki/Emma_Curtis_Hopkins)

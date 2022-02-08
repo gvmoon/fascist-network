@@ -1,0 +1,1 @@
+﻿[William Potter Gale - Wikipedia](https://en.wikipedia.org/wiki/William_Potter_Gale)

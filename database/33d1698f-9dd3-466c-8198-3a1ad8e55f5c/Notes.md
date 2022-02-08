@@ -1,0 +1,1 @@
+﻿[John H. Stek - Wikipedia](https://en.wikipedia.org/wiki/John_H._Stek)

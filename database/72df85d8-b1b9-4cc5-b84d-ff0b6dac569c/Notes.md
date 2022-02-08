@@ -1,0 +1,1 @@
+﻿**[Kurt Gruber - Wikipedia](https://en.wikipedia.org/wiki/Kurt_Gruber)**

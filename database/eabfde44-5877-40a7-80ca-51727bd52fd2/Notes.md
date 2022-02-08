@@ -1,0 +1,1 @@
+﻿[Adam Putnam - Wikipedia](https://en.wikipedia.org/wiki/Adam_Putnam)

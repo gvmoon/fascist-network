@@ -1,0 +1,1 @@
+﻿[Benjamin Netanyahu - Wikipedia](https://en.wikipedia.org/wiki/Benjamin_Netanyahu)

@@ -1,0 +1,1 @@
+﻿[John Walvoord - Wikipedia](https://en.wikipedia.org/wiki/John_Walvoord)

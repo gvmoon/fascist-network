@@ -1,0 +1,1 @@
+﻿[Gershom Scholem - Wikipedia](https://en.wikipedia.org/wiki/Gershom_Scholem)

@@ -1,0 +1,1 @@
+﻿[National Vanguard (American organization) - Wikipedia](https://en.wikipedia.org/wiki/National_Vanguard_(American_organization))

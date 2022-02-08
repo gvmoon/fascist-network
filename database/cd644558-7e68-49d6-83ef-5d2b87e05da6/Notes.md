@@ -1,0 +1,1 @@
+﻿[James Yates (minister) - Wikipedia](https://en.wikipedia.org/wiki/James_Yates_(Unitarian))

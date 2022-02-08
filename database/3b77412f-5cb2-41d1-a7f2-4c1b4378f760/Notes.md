@@ -1,0 +1,1 @@
+﻿[R. J. Rushdoony - Wikipedia](https://en.wikipedia.org/wiki/R._J._Rushdoony)

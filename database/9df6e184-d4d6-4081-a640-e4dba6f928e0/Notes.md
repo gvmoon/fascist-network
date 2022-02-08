@@ -1,0 +1,1 @@
+﻿[William T. R. Fox - Wikipedia](https://en.wikipedia.org/wiki/William_T._R._Fox)

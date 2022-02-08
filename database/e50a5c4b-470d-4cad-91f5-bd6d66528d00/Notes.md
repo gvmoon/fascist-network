@@ -1,0 +1,1 @@
+﻿[Roy A. Clouser - Wikipedia](https://en.wikipedia.org/wiki/Roy_A._Clouser)

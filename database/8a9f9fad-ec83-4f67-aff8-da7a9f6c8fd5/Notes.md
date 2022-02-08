@@ -1,0 +1,1 @@
+﻿[John Rickman (psychoanalyst) - Wikipedia](https://en.wikipedia.org/wiki/John_Rickman_(psychoanalyst))

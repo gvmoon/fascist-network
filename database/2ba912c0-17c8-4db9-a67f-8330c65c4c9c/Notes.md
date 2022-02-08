@@ -1,0 +1,1 @@
+﻿[Richard N. Gardner - Wikipedia](https://en.wikipedia.org/wiki/Richard_N._Gardner)

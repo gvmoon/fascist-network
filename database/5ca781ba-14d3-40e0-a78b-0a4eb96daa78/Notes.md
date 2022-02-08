@@ -1,0 +1,1 @@
+﻿[Friedrich Schleiermacher - Wikipedia](https://en.wikipedia.org/wiki/Friedrich_Schleiermacher)

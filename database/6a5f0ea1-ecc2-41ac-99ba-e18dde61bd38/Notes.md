@@ -1,0 +1,1 @@
+﻿[Thiel Foundation - Wikipedia](https://en.wikipedia.org/wiki/Thiel_Foundation)

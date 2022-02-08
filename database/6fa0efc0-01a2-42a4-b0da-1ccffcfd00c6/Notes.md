@@ -1,0 +1,1 @@
+﻿[Christian Fürchtegott Gellert - Wikipedia](https://en.wikipedia.org/wiki/Christian_F%C3%BCrchtegott_Gellert)

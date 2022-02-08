@@ -1,0 +1,1 @@
+﻿[John Ashcroft - Wikipedia](https://en.wikipedia.org/wiki/John_Ashcroft)

@@ -1,0 +1,1 @@
+﻿[Johann Ritter von Oppolzer - Wikipedia](https://en.wikipedia.org/wiki/Johann_Ritter_von_Oppolzer)

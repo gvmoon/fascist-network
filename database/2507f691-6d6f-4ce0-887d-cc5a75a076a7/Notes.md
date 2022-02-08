@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Franz_von_Papen

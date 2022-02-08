@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Shane_Smith_(journalist)

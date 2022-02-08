@@ -1,0 +1,7 @@
+﻿[Jedediah_M](https://en.wikipedia.org/wiki/Jedediah_M._Grant)
+
+
+|Born:|February 21, 1816|
+|Died:|December 1, 1856 (aged 40)|
+|Positions:|Second Counselor in the [First Presidency](https://en.wikipedia.org/wiki/First_Presidency_%28LDS_Church%29 "First Presidency (LDS Church)"), called by [Brigham Young](https://en.wikipedia.org/wiki/Brigham_Young "Brigham Young"), April 7, 1854 – December 1, 1856{nl}[LDS Church](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by [Brigham Young](https://en.wikipedia.org/wiki/Brigham_Young "Brigham Young"), April 7, 1854 – December 1, 1856{nl}[First Seven Presidents of the Seventy](https://en.wikipedia.org/wiki/Seventy_%28LDS_Church%29#Early_Latter_Day_Saint_quorums_of_seventy "Seventy (LDS Church)"), called by [Brigham Young](https://en.wikipedia.org/wiki/Brigham_Young "Brigham Young"), December 2, 1845 – April 7, 1854|
+|Notes:|He was known for{nl}his fiery speeches during the Reformation of 1856, earning the {nl}nickname, "Brigham's Sledgehammer". He was a member of the Council of {nl}Fifty and Mayor of Salt Lake City (1851–56). He is the father of Heber {nl}J. Grant, who later served as President of the Church.|

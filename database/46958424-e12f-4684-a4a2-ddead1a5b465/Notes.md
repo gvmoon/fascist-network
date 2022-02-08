@@ -1,0 +1,1 @@
+﻿[Palantir Technologies - Wikipedia](https://en.wikipedia.org/wiki/Palantir_Technologies)

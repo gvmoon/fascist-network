@@ -1,0 +1,1 @@
+﻿[Union Bible College and Academy - Wikipedia](https://en.wikipedia.org/wiki/Union_Bible_College_and_Academy)

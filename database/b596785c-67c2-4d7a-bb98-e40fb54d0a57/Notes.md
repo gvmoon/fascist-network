@@ -1,0 +1,1 @@
+﻿[John W. Bricker - Wikipedia](https://en.wikipedia.org/wiki/John_W._Bricker)

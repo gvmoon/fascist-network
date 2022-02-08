@@ -1,0 +1,1 @@
+﻿[Social Security Administration - Wikipedia](https://en.wikipedia.org/wiki/Social_Security_Administration)

@@ -1,0 +1,1 @@
+﻿[Northern Kentucky University - Wikipedia](https://en.wikipedia.org/wiki/Northern_Kentucky_University)

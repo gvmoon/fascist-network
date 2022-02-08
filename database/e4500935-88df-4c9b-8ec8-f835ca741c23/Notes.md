@@ -1,0 +1,1 @@
+﻿[Friedrich Nietzsche - Wikipedia](https://en.wikipedia.org/wiki/Friedrich_Nietzsche)

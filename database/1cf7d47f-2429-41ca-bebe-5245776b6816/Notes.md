@@ -1,0 +1,1 @@
+﻿[Karl Jaspers - Wikipedia](https://en.wikipedia.org/wiki/Karl_Jaspers)

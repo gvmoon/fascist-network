@@ -1,0 +1,1 @@
+﻿[David Rubenstein - Wikipedia](https://en.wikipedia.org/wiki/David_Rubenstein)

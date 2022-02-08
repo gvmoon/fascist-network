@@ -1,0 +1,1 @@
+﻿[Jim Jordan (American politician) - Wikipedia](https://en.wikipedia.org/wiki/Jim_Jordan_(American_politician))

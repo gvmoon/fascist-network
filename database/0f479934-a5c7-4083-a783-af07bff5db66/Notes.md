@@ -1,0 +1,1 @@
+﻿[Gotthold Ephraim Lessing - Wikipedia](https://en.wikipedia.org/wiki/Gotthold_Ephraim_Lessing)

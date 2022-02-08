@@ -1,0 +1,1 @@
+﻿[Midwestern Baptist Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Midwestern_Baptist_Theological_Seminary)

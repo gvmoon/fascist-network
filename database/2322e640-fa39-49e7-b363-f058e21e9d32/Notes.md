@@ -1,0 +1,1 @@
+﻿[Richard DeVos - Wikipedia](https://en.wikipedia.org/wiki/Richard_DeVos)

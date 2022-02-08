@@ -1,0 +1,1 @@
+﻿[Harry S. Truman - Wikipedia](https://en.wikipedia.org/wiki/Harry_S._Truman)

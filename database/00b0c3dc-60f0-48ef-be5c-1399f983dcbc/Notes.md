@@ -1,0 +1,1 @@
+﻿[Kenneth E. Hagin - Wikipedia](https://en.wikipedia.org/wiki/Kenneth_E._Hagin)

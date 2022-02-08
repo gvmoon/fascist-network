@@ -1,0 +1,1 @@
+﻿[Bret Weinstein - Wikipedia](https://en.wikipedia.org/wiki/Bret_Weinstein)

@@ -1,0 +1,1 @@
+﻿[Condoleezza Rice - Wikipedia](https://en.wikipedia.org/wiki/Condoleezza_Rice)

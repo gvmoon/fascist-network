@@ -1,0 +1,1 @@
+﻿[Andrew Card - Wikipedia](https://en.wikipedia.org/wiki/Andrew_Card)

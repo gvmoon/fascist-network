@@ -1,0 +1,1 @@
+﻿[Jinger Duggar Vuolo - Wikipedia](https://en.wikipedia.org/wiki/Jinger_Duggar_Vuolo)

@@ -1,0 +1,1 @@
+﻿[Edmund Burke - Wikipedia](https://en.wikipedia.org/wiki/Edmund_Burke)

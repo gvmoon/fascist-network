@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Reader%27s_Digest

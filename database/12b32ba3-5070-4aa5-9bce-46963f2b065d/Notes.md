@@ -1,0 +1,1 @@
+﻿[Vajrayana - Wikipedia](https://en.wikipedia.org/wiki/Vajrayana)

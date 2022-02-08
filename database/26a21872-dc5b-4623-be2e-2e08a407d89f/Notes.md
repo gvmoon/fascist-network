@@ -1,0 +1,1 @@
+﻿[Church of God (Anderson, Indiana) - Wikipedia](https://en.wikipedia.org/wiki/Church_of_God_(Anderson,_Indiana))

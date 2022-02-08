@@ -1,0 +1,1 @@
+﻿[Candace Owens - Wikipedia](https://en.wikipedia.org/wiki/Candace_Owens)

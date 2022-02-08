@@ -1,0 +1,1 @@
+﻿[Technicolor SA - Wikipedia](https://en.wikipedia.org/wiki/Technicolor_SA)

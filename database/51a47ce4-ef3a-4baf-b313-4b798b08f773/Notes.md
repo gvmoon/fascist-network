@@ -1,0 +1,1 @@
+﻿[Dominique Venner - Wikipedia](https://en.wikipedia.org/wiki/Dominique_Venner)

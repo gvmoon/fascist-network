@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/University_at_Albany,_SUNY

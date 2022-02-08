@@ -1,0 +1,1 @@
+﻿[Bernard Brodie (military strategist) - Wikipedia](https://en.wikipedia.org/wiki/Bernard_Brodie_(military_strategist))

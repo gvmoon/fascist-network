@@ -1,0 +1,1 @@
+﻿[Gerald Heard - Wikipedia](https://en.wikipedia.org/wiki/Gerald_Heard)

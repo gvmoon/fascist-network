@@ -1,0 +1,1 @@
+﻿[Gary North (economist) - Wikipedia](https://en.wikipedia.org/wiki/Gary_North_(economist))

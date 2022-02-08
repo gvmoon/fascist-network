@@ -1,0 +1,1 @@
+﻿[Edward Rell Madigan - Wikipedia](https://en.wikipedia.org/wiki/Edward_Rell_Madigan)

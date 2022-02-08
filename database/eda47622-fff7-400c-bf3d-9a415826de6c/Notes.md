@@ -1,0 +1,1 @@
+﻿[Richard Wright (Unitarian) - Wikipedia](https://en.wikipedia.org/wiki/Richard_Wright_(Unitarian))

@@ -1,0 +1,1 @@
+﻿[Francis Fukuyama - Wikipedia](https://en.wikipedia.org/wiki/Francis_Fukuyama)

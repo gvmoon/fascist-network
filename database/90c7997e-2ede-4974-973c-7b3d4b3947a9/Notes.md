@@ -1,0 +1,1 @@
+﻿[Society of Christian Philosophers - Wikipedia](https://en.wikipedia.org/wiki/Society_of_Christian_Philosophers)

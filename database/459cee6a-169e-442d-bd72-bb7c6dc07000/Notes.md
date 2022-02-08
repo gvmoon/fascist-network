@@ -1,0 +1,1 @@
+﻿[Laura Deming - Wikipedia](https://en.wikipedia.org/wiki/Laura_Deming)

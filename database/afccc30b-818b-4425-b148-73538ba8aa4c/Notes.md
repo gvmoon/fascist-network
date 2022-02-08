@@ -1,0 +1,1 @@
+﻿[Fortune (magazine) - Wikipedia](https://en.wikipedia.org/wiki/Fortune_(magazine))

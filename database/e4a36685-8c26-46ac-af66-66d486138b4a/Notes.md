@@ -1,0 +1,7 @@
+﻿[Daniel H. Wells - Wikipedia](https://en.wikipedia.org/wiki/Daniel_H._Wells)
+
+
+|Born:|October 27, 1814|
+|Died:|March 24, 1891 (aged 76)|
+|Positions:|Counselor to the [Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "Quorum of the Twelve Apostles (LDS Church)"), called by [John Taylor](https://en.wikipedia.org/wiki/John_Taylor_%28Mormon%29 "John Taylor (Mormon)"), October 6, 1877 – March 24, 1891{nl}Second Counselor in [First Presidency](https://en.wikipedia.org/wiki/First_Presidency_%28LDS_Church%29 "First Presidency (LDS Church)"), called by [Brigham Young](https://en.wikipedia.org/wiki/Brigham_Young "Brigham Young"), January 4, 1857 – August 29, 1877{nl}[LDS Church](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by Brigham Young, January 4, 1857 – March 24, 1891|
+|Notes:|Wells was a member of the Council of Fifty, Mayor of Salt Lake City (1866–76), president of the [Manti Utah Temple](https://en.wikipedia.org/wiki/Manti_Utah_Temple "Manti Utah Temple"){nl}(1888–91), and presided over the continuing construction of the Salt {nl}Lake Temple as the superintendent of public works for the LDS Church {nl}(1848–63). On April 6, 1877, Wells dedicated the [St. George Utah Temple](https://en.wikipedia.org/wiki/St._George_Utah_Temple "St. George Utah Temple").|

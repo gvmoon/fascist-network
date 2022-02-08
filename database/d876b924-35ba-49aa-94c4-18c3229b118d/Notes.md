@@ -1,0 +1,1 @@
+﻿[Management science - Wikipedia](https://en.wikipedia.org/wiki/Management_science)

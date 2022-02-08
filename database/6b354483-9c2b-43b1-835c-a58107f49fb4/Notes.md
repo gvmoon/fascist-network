@@ -1,0 +1,1 @@
+﻿[Cornel West - Wikipedia](https://en.wikipedia.org/wiki/Cornel_West)

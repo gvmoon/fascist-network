@@ -1,0 +1,7 @@
+﻿[Brigham Young - Wikipedia](https://en.wikipedia.org/wiki/Brigham_Young)
+
+
+|Born:|June 1, 1801|
+|Died:|August 29, 1877 (aged 76)|
+|Positions:|2nd [President](https://en.wikipedia.org/wiki/President_of_the_Church_%28LDS_Church%29 "President of the Church (LDS Church)") of [The Church of Jesus Christ of Latter-day Saints](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints"), December 27, 1847 – August 29, 1877{nl}[President of the Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/President_of_the_Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "President of the Quorum of the Twelve Apostles (LDS Church)"), April 14, 1840 – December 27, 1847{nl}[Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "Quorum of the Twelve Apostles (LDS Church)"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), February 14, 1835 – December 27, 1847{nl}[LDS Church](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by Three Witnesses, February 14, 1835 – August 29, 1877|
+|Notes:|Succeeded Smith as leader of the LDS Church.  Was also [Governor of Utah Territory](https://en.wikipedia.org/wiki/List_of_Governors_of_Utah "List of Governors of Utah") from February 3, 1851 to April 12, 1858.|

@@ -1,0 +1,1 @@
+﻿[Nazism - Wikipedia](https://en.wikipedia.org/wiki/Nazism)

@@ -1,0 +1,1 @@
+﻿[Giordano Bruno - Wikipedia](https://en.wikipedia.org/wiki/Giordano_Bruno)

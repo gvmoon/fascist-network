@@ -1,0 +1,1 @@
+﻿[Jean-François Lyotard - Wikipedia](https://en.wikipedia.org/wiki/Jean-Fran%C3%A7ois_Lyotard)

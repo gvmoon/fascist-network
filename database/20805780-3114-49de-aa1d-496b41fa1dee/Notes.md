@@ -1,0 +1,1 @@
+﻿[Julius Streicher - Wikipedia](https://en.wikipedia.org/wiki/Julius_Streicher)

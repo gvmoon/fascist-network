@@ -1,0 +1,1 @@
+﻿[Muhlenberg College - Wikipedia](https://en.wikipedia.org/wiki/Muhlenberg_College)

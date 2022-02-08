@@ -1,0 +1,1 @@
+﻿[Paul M. Cook - Wikipedia](https://en.wikipedia.org/wiki/Paul_M._Cook)

@@ -1,0 +1,1 @@
+﻿[Franz Neumann (political scientist) - Wikipedia](https://en.wikipedia.org/wiki/Franz_Neumann_(political_scientist))

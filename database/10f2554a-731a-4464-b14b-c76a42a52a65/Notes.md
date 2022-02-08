@@ -1,0 +1,1 @@
+﻿[Fredric Jameson - Wikipedia](https://en.wikipedia.org/wiki/Fredric_Jameson)

@@ -1,0 +1,1 @@
+﻿[Max Weber - Wikipedia](https://en.wikipedia.org/wiki/Max_Weber)

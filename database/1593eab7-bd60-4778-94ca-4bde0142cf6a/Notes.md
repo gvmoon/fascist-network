@@ -1,0 +1,1 @@
+﻿[Clement Biddle - Wikipedia](https://en.wikipedia.org/wiki/Clement_Biddle)

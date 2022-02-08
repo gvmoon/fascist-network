@@ -1,0 +1,3 @@
+﻿[Levi Stewart Udall - Wikipedia](https://en.wikipedia.org/wiki/Levi_Stewart_Udall)
+
+**Levi Stewart Udall** (January 20, 1891 – May 30, 1960) was a [U.S.](https://en.wikipedia.org/wiki/United_States "United States") [lawyer](https://en.wikipedia.org/wiki/Lawyer "Lawyer") who served as [Chief Justice](https://en.wikipedia.org/wiki/Chief_Justice "Chief Justice") of the [Arizona Supreme Court](https://en.wikipedia.org/wiki/Arizona_Supreme_Court "Arizona Supreme Court"). He was a member of the [Udall political family](https://en.wikipedia.org/wiki/Udall_family "Udall family").

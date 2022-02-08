@@ -1,0 +1,1 @@
+﻿[Psychiatry - Wikipedia](https://en.wikipedia.org/wiki/Psychiatry)

@@ -1,0 +1,1 @@
+﻿[Gabriel Tarde - Wikipedia](https://en.wikipedia.org/wiki/Gabriel_Tarde)

@@ -1,0 +1,1 @@
+﻿[Manuel Ortiz (pastor) - Wikipedia](https://en.wikipedia.org/wiki/Manuel_Ortiz_(pastor))

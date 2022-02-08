@@ -1,0 +1,1 @@
+﻿[Zalmay Khalilzad - Wikipedia](https://en.wikipedia.org/wiki/Zalmay_Khalilzad)

@@ -1,0 +1,1 @@
+﻿[Richard Fikes - Wikipedia](https://en.wikipedia.org/wiki/Richard_Fikes)

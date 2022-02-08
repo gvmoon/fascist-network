@@ -1,0 +1,1 @@
+﻿[University of Frankfurt Institute for Social Research - Wikipedia](https://en.wikipedia.org/wiki/University_of_Frankfurt_Institute_for_Social_Research)

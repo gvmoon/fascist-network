@@ -1,0 +1,1 @@
+﻿[Upanishads - Wikipedia](https://en.wikipedia.org/wiki/Upanishads)

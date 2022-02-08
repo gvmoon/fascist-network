@@ -1,0 +1,1 @@
+﻿[Reformed fundamentalism - Wikipedia](https://en.wikipedia.org/wiki/Reformed_fundamentalism)

@@ -1,0 +1,1 @@
+﻿[Wendy Sherman - Wikipedia](https://en.wikipedia.org/wiki/Wendy_Sherman)

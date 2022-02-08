@@ -1,0 +1,1 @@
+﻿[Ash Carter - Wikipedia](https://en.wikipedia.org/wiki/Ash_Carter)

@@ -1,0 +1,1 @@
+﻿[George O. Wood - Wikipedia](https://en.wikipedia.org/wiki/George_O._Wood)

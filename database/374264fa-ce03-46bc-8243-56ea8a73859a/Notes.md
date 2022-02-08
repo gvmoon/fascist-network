@@ -1,0 +1,1 @@
+﻿[Jakob Böhme - Wikipedia](https://en.wikipedia.org/wiki/Jakob_B%C3%B6hme)

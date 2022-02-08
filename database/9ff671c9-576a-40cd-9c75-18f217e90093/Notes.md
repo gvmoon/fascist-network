@@ -1,0 +1,1 @@
+﻿[Hertford College, Oxford - Wikipedia](https://en.wikipedia.org/wiki/Hertford_College,_Oxford)

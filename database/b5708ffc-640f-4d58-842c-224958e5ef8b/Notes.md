@@ -1,0 +1,1 @@
+﻿[Nicene Creed - Wikipedia](https://en.wikipedia.org/wiki/Nicene_Creed)

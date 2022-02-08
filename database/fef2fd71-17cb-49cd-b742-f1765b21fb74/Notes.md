@@ -1,0 +1,1 @@
+﻿[Allan Kardec - Wikipedia](https://en.wikipedia.org/wiki/Allan_Kardec)

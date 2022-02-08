@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Guatemalan_Party_of_Labour

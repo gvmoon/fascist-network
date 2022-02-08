@@ -1,0 +1,1 @@
+﻿[John Forbes Nash Jr. - Wikipedia](https://en.wikipedia.org/wiki/John_Forbes_Nash_Jr.)

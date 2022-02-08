@@ -1,0 +1,1 @@
+﻿[William Walker Atkinson - Wikipedia](https://en.wikipedia.org/wiki/William_Walker_Atkinson)

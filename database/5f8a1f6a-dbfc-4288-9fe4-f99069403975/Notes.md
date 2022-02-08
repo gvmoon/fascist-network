@@ -1,0 +1,1 @@
+﻿[Edward Luttwak - Wikipedia](https://en.wikipedia.org/wiki/Edward_Luttwak)

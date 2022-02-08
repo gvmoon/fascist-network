@@ -1,0 +1,6 @@
+﻿[Heber C. Kimball - Wikipedia](https://en.wikipedia.org/wiki/Heber_C._Kimball)
+
+
+|Born:|June 14, 1801|
+|Died:|June 22, 1868 (aged 67)|
+|Positions:|First Counselor in the [First Presidency](https://en.wikipedia.org/wiki/First_Presidency_%28LDS_Church%29 "First Presidency (LDS Church)"), called by [Brigham Young](https://en.wikipedia.org/wiki/Brigham_Young "Brigham Young"), December 27, 1847 – June 22, 1868{nl}[Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "Quorum of the Twelve Apostles (LDS Church)"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), February 14, 1835 – December 27, 1847{nl}[LDS Church](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), February 14, 1835 – June 22, 1868|

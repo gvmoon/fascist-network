@@ -1,0 +1,1 @@
+﻿[Gilbert du Motier, Marquis de Lafayette - Wikipedia](https://en.wikipedia.org/wiki/Gilbert_du_Motier,_Marquis_de_Lafayette)
