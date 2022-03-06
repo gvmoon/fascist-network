@@ -1,0 +1,1 @@
+﻿[Psychotherapy - Wikipedia](https://en.wikipedia.org/wiki/Psychotherapy)

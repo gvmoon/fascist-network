@@ -1,1 +1,1 @@
-﻿Bertrand_Russell
+﻿https://en.wikipedia.org/wiki/Bertrand_Russell

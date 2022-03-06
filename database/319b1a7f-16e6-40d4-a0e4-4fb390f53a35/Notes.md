@@ -1,0 +1,1 @@
+﻿[Intercollegiate Studies Institute - Wikipedia](https://en.wikipedia.org/wiki/Intercollegiate_Studies_Institute)

@@ -1,0 +1,1 @@
+﻿[University of Idaho - Wikipedia](https://en.wikipedia.org/wiki/University_of_Idaho)

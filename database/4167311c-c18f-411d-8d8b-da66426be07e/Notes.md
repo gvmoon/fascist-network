@@ -1,0 +1,1 @@
+﻿[Alan Charles Kors - Wikipedia](https://en.wikipedia.org/wiki/Alan_Charles_Kors)

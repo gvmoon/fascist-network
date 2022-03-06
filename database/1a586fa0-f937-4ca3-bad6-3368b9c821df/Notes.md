@@ -1,0 +1,1 @@
+﻿[Richard B. Spencer - Wikipedia](https://en.wikipedia.org/wiki/Richard_B._Spencer)

@@ -1,0 +1,1 @@
+﻿[Denver Seminary - Wikipedia](https://en.wikipedia.org/wiki/Denver_Seminary)

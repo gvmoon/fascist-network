@@ -1,0 +1,1 @@
+﻿[Kazimierz Fajans - Wikipedia](https://en.wikipedia.org/wiki/Kazimierz_Fajans)

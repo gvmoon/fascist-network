@@ -1,1 +1,1 @@
-﻿# Conservative Revolution
+﻿[Conservative Revolution - Wikipedia](https://en.wikipedia.org/wiki/Conservative_Revolution)

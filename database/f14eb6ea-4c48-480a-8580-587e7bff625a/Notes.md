@@ -1,0 +1,1 @@
+﻿[Henry Christopher McCook - Wikipedia](https://en.wikipedia.org/wiki/Henry_Christopher_McCook)

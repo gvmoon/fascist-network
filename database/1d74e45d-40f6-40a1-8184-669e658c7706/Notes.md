@@ -1,0 +1,1 @@
+﻿[Bill Bain (consultant) - Wikipedia](https://en.wikipedia.org/wiki/Bill_Bain_(consultant))

@@ -1,0 +1,1 @@
+﻿[Karl Rove - Wikipedia](https://en.wikipedia.org/wiki/Karl_Rove)

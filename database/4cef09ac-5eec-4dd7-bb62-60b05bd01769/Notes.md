@@ -1,0 +1,1 @@
+﻿[Humphry Osmond - Wikipedia](https://en.wikipedia.org/wiki/Humphry_Osmond)

@@ -1,0 +1,1 @@
+﻿[David J. Skorton - Wikipedia](https://en.wikipedia.org/wiki/David_J._Skorton)

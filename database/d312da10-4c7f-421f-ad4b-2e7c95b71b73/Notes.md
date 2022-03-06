@@ -1,0 +1,1 @@
+﻿[Hermitage Capital Management - Wikipedia](https://en.wikipedia.org/wiki/Hermitage_Capital_Management)

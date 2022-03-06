@@ -1,0 +1,1 @@
+﻿[Tim LaHaye - Wikipedia](https://en.wikipedia.org/wiki/Tim_LaHaye)

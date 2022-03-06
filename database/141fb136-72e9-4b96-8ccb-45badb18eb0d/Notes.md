@@ -1,0 +1,1 @@
+﻿[Western Seminary - Wikipedia](https://en.wikipedia.org/wiki/Western_Seminary)

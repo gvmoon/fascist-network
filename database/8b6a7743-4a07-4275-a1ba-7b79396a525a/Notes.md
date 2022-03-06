@@ -1,0 +1,1 @@
+﻿[Helen Parkhurst - Wikipedia](https://en.wikipedia.org/wiki/Helen_Parkhurst)

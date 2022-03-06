@@ -1,0 +1,1 @@
+﻿[Thomas E. Dewey - Wikipedia](https://en.wikipedia.org/wiki/Thomas_E._Dewey)

@@ -1,0 +1,1 @@
+﻿[Jewish Theological Seminary of America - Wikipedia](https://en.wikipedia.org/wiki/Jewish_Theological_Seminary_of_America)

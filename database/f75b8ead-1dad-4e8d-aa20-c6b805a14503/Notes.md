@@ -1,1 +1,1 @@
-﻿[Reinhold Niebuhr - Wikipedia](https://en.wikipedia.org/wiki/Reinhold_Niebuhr)
+﻿https://en.wikipedia.org/wiki/American_Legion

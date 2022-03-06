@@ -1,0 +1,1 @@
+﻿[Darrell Guder - Wikipedia](https://en.wikipedia.org/wiki/Darrell_Guder)

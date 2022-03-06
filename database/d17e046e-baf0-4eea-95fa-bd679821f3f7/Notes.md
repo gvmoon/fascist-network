@@ -1,0 +1,1 @@
+﻿[Dale Evans - Wikipedia](https://en.wikipedia.org/wiki/Dale_Evans)

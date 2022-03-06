@@ -1,0 +1,1 @@
+﻿[Terry Nichols - Wikipedia](https://en.wikipedia.org/wiki/Terry_Nichols)

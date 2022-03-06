@@ -1,0 +1,1 @@
+﻿[Richard Perle - Wikipedia](https://en.wikipedia.org/wiki/Richard_Perle)

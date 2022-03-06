@@ -1,0 +1,1 @@
+﻿[Wesley Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Wesley_Theological_Seminary)

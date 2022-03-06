@@ -1,0 +1,1 @@
+﻿[William S. Lind - Wikipedia](https://en.wikipedia.org/wiki/William_S._Lind)

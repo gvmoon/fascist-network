@@ -1,0 +1,1 @@
+﻿[Stepan Bandera - Wikipedia](https://en.wikipedia.org/wiki/Stepan_Bandera)

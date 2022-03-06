@@ -1,0 +1,1 @@
+﻿[Louisiana State University - Wikipedia](https://en.wikipedia.org/wiki/Louisiana_State_University)

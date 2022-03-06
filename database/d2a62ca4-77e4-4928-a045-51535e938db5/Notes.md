@@ -1,0 +1,1 @@
+﻿[Western Governors University - Wikipedia](https://en.wikipedia.org/wiki/Western_Governors_University)

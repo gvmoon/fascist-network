@@ -1,0 +1,1 @@
+﻿[Abby Aldrich Rockefeller - Wikipedia](https://en.wikipedia.org/wiki/Abby_Aldrich_Rockefeller)

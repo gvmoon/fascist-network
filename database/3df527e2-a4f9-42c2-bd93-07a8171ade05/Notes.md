@@ -1,0 +1,1 @@
+﻿[John W. Gardner - Wikipedia](https://en.wikipedia.org/wiki/John_W._Gardner)

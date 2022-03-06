@@ -1,0 +1,1 @@
+﻿[John Sherman Cooper - Wikipedia](https://en.wikipedia.org/wiki/John_Sherman_Cooper)

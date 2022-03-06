@@ -1,0 +1,1 @@
+﻿[George Wallace - Wikipedia](https://en.wikipedia.org/wiki/George_Wallace)
