@@ -1,0 +1,1 @@
+﻿[Club of Rome - Wikipedia](https://en.wikipedia.org/wiki/Club_of_Rome)

@@ -1,0 +1,1 @@
+﻿[George H. Hitchings - Wikipedia](https://en.wikipedia.org/wiki/George_H._Hitchings)

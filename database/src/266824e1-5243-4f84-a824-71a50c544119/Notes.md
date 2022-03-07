@@ -1,0 +1,1 @@
+﻿[Girl Scouts of the USA - Wikipedia](https://en.wikipedia.org/wiki/Girl_Scouts_of_the_USA)

@@ -1,0 +1,1 @@
+﻿[Josiah Parsons Cooke - Wikipedia](https://en.wikipedia.org/wiki/Josiah_Parsons_Cooke)

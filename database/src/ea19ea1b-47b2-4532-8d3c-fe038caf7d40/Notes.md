@@ -1,0 +1,1 @@
+﻿[The Life Story](https://skousensinamerica.org/histories/JamesNielsSkousenJr.htm)

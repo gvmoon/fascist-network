@@ -1,0 +1,1 @@
+﻿[Anderson Cooper - Wikipedia](https://en.wikipedia.org/wiki/Anderson_Cooper)

@@ -1,0 +1,1 @@
+﻿[Jacinda Ardern - Wikipedia](https://en.wikipedia.org/wiki/Jacinda_Ardern)

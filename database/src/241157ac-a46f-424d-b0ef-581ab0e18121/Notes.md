@@ -1,0 +1,1 @@
+﻿[Sphinx Head - Wikipedia](https://en.wikipedia.org/wiki/Sphinx_Head)

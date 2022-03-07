@@ -1,0 +1,1 @@
+﻿[Hamilton College - Wikipedia](https://en.wikipedia.org/wiki/Hamilton_College)

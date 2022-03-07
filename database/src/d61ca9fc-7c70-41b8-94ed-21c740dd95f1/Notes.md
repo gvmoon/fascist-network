@@ -1,0 +1,1 @@
+﻿[King's College, Cambridge - Wikipedia](https://en.wikipedia.org/wiki/King%27s_College,_Cambridge)

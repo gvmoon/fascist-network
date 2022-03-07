@@ -1,0 +1,1 @@
+﻿[Francis Galton - Wikipedia](https://en.wikipedia.org/wiki/Francis_Galton)

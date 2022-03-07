@@ -1,0 +1,1 @@
+﻿[Vladimir Vernadsky - Wikipedia](https://en.wikipedia.org/wiki/Vladimir_Vernadsky)

@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Foundation_for_Individual_Rights_in_Education

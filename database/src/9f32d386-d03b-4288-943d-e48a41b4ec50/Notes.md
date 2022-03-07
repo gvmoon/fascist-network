@@ -1,0 +1,1 @@
+﻿[Presidency of Barack Obama - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_Barack_Obama)

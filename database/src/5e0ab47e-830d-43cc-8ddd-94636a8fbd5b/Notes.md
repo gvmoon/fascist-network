@@ -1,0 +1,1 @@
+﻿[Presidency of Franklin D. Roosevelt, first and second terms - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_Franklin_D._Roosevelt,_first_and_second_terms)

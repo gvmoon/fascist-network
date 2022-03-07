@@ -1,0 +1,1 @@
+﻿[John Mack (civic leader) - Wikipedia](https://en.wikipedia.org/wiki/John_Mack_(civic_leader))

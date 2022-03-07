@@ -1,0 +1,1 @@
+﻿[Frederick Taylor Gates - Wikipedia](https://en.wikipedia.org/wiki/Frederick_Taylor_Gates)

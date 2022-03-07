@@ -1,0 +1,1 @@
+﻿[Social conservatism in the United States - Wikipedia](https://en.wikipedia.org/wiki/Social_conservatism_in_the_United_States)

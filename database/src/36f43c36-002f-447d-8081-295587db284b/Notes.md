@@ -1,0 +1,1 @@
+﻿[American Society for Psychical Research - Wikipedia](https://en.wikipedia.org/wiki/American_Society_for_Psychical_Research)

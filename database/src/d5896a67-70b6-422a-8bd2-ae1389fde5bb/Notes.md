@@ -1,0 +1,1 @@
+﻿[George Kirke Spoor - Wikipedia](https://en.wikipedia.org/wiki/George_Kirke_Spoor)

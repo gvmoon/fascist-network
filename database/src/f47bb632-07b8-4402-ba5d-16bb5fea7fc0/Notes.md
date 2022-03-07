@@ -1,0 +1,1 @@
+﻿[Seabury-Western Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Seabury-Western_Theological_Seminary)

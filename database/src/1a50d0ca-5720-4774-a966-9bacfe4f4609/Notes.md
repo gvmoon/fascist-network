@@ -1,0 +1,1 @@
+﻿[New York Power Authority - Wikipedia](https://en.wikipedia.org/wiki/New_York_Power_Authority)

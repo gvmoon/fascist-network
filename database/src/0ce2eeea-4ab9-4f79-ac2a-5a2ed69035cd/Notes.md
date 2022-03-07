@@ -1,0 +1,1 @@
+﻿[Lviv Polytechnic - Wikipedia](https://en.wikipedia.org/wiki/Lviv_Polytechnic)

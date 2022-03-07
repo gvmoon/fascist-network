@@ -1,0 +1,1 @@
+﻿[Lafayette S. Foster - Wikipedia](https://en.wikipedia.org/wiki/Lafayette_S._Foster)

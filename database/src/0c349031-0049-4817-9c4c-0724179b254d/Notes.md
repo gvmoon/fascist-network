@@ -1,0 +1,1 @@
+﻿[Christ of the Ozarks - Wikipedia](https://en.wikipedia.org/wiki/Christ_of_the_Ozarks)

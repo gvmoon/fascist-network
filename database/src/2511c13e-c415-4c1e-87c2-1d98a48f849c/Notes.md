@@ -1,0 +1,1 @@
+﻿[Andrew Carnegie - Wikipedia](https://en.wikipedia.org/wiki/Andrew_Carnegie)

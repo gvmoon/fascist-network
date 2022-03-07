@@ -1,0 +1,1 @@
+﻿[Gina Raimondo - Wikipedia](https://en.wikipedia.org/wiki/Gina_Raimondo)

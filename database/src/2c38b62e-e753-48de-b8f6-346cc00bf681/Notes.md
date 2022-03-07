@@ -1,0 +1,1 @@
+﻿[George Coyne - Wikipedia](https://en.wikipedia.org/wiki/George_Coyne)

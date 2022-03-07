@@ -1,0 +1,1 @@
+﻿[Trent Lott - Wikipedia](https://en.wikipedia.org/wiki/Trent_Lott)

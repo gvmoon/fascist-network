@@ -1,0 +1,1 @@
+﻿[Judith Reisman - Wikipedia](https://en.wikipedia.org/wiki/Judith_Reisman)

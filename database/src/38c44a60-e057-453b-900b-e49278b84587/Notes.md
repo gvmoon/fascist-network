@@ -1,0 +1,1 @@
+﻿[Samuel Vaughan Merrick - Wikipedia](https://en.wikipedia.org/wiki/Samuel_Vaughan_Merrick)

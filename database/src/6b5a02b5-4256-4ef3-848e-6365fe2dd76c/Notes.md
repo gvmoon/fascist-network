@@ -1,0 +1,1 @@
+﻿[Roger Simon (journalist) - Wikipedia](https://en.wikipedia.org/wiki/Roger_Simon_(journalist))

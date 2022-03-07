@@ -1,0 +1,1 @@
+﻿[Lehigh University - Wikipedia](https://en.wikipedia.org/wiki/Lehigh_University)

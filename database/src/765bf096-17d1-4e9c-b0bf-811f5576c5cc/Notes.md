@@ -1,0 +1,1 @@
+﻿[2005_11_01_John_Fisher_ASC_history](https://isgp-studies.com/organisations/ASC/2005_11_01_John_Fisher_ASC_history.pdf)

@@ -1,0 +1,1 @@
+﻿[Bausch Health - Wikipedia](https://en.wikipedia.org/wiki/Bausch_Health)

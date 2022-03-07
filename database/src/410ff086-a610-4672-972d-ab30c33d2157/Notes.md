@@ -1,0 +1,1 @@
+﻿[Manufacturers Hanover Corporation - Wikipedia](https://en.wikipedia.org/wiki/Manufacturers_Hanover_Corporation)

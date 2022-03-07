@@ -1,0 +1,1 @@
+﻿[Fordham University School of Law - Wikipedia](https://en.wikipedia.org/wiki/Fordham_University_School_of_Law)

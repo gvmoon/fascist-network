@@ -1,0 +1,1 @@
+﻿[William Randolph Hearst - Wikipedia](https://en.wikipedia.org/wiki/William_Randolph_Hearst)
