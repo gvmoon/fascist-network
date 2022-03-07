@@ -1,1 +1,0 @@
-﻿[John A. Mackay - Wikipedia](https://en.wikipedia.org/wiki/John_A._Mackay)

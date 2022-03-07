@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Senate_Conservatives_Fund

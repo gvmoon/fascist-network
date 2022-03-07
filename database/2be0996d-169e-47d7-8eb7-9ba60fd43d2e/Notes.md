@@ -1,1 +1,0 @@
-﻿[Enid Balint - Wikipedia](https://en.wikipedia.org/wiki/Enid_Balint)

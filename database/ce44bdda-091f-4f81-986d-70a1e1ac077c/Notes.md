@@ -1,1 +1,0 @@
-﻿[German American Bund - Wikipedia](https://en.wikipedia.org/wiki/German_American_Bund)

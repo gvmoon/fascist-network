@@ -1,1 +1,0 @@
-﻿[F. W. Olin Foundation - Wikipedia](https://en.wikipedia.org/wiki/F._W._Olin_Foundation)

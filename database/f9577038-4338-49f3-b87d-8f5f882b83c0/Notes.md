@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Sim%C3%A3o_Rodrigues

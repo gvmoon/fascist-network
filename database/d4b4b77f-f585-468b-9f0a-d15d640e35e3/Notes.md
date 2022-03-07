@@ -1,1 +1,0 @@
-﻿[Creativity (religion) - Wikipedia](https://en.wikipedia.org/wiki/Creativity_(religion))

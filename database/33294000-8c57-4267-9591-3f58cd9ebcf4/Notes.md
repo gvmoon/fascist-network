@@ -1,1 +1,0 @@
-﻿[Woodrow Wilson - Wikipedia](https://en.wikipedia.org/wiki/Woodrow_Wilson)

@@ -1,1 +1,0 @@
-﻿[Louise Whitfield Carnegie - Wikipedia](https://en.wikipedia.org/wiki/Louise_Whitfield_Carnegie)

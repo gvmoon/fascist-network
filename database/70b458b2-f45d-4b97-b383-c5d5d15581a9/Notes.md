@@ -1,1 +1,0 @@
-﻿[Francis Schaeffer - Wikipedia](https://en.wikipedia.org/wiki/Francis_Schaeffer)

@@ -1,1 +1,0 @@
-﻿[Ben Goertzel - Wikipedia](https://en.wikipedia.org/wiki/Ben_Goertzel)

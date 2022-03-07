@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Trial_of_Clay_Shaw

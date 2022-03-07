@@ -1,1 +1,0 @@
-﻿[Bernard-Raymond Fabré-Palaprat - Wikipedia](https://en.wikipedia.org/wiki/Bernard-Raymond_Fabr%C3%A9-Palaprat)

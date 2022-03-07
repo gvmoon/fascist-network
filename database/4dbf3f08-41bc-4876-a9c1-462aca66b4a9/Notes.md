@@ -1,1 +1,0 @@
-﻿[Herman Hoeksema - Wikipedia](https://en.wikipedia.org/wiki/Herman_Hoeksema)

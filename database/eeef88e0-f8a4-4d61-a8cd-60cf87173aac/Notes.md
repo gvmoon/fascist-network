@@ -1,1 +1,0 @@
-﻿[Elias James Corey - Wikipedia](https://en.wikipedia.org/wiki/Elias_James_Corey)

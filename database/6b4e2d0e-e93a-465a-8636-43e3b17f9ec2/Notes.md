@@ -1,1 +1,0 @@
-﻿[New European Order - Wikipedia](https://en.wikipedia.org/wiki/New_European_Order)

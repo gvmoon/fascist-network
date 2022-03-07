@@ -1,0 +1,1 @@
+﻿[The Michigan Daily - Wikipedia](https://en.wikipedia.org/wiki/The_Michigan_Daily)

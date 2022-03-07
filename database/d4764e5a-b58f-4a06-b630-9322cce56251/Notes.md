@@ -1,1 +1,0 @@
-﻿[Casey Affleck - Wikipedia](https://en.wikipedia.org/wiki/Casey_Affleck)

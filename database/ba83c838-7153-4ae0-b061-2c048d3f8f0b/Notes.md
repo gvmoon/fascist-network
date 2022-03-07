@@ -1,1 +1,0 @@
-﻿[M. Stanton Evans - Wikipedia](https://en.wikipedia.org/wiki/M._Stanton_Evans)

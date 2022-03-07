@@ -1,1 +1,0 @@
-﻿[Hindu philosophy - Wikipedia](https://en.wikipedia.org/wiki/Hindu_philosophy)

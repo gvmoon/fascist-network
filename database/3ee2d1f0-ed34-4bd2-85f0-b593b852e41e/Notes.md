@@ -1,1 +1,0 @@
-﻿[Christina Hoff Sommers - Wikipedia](https://en.wikipedia.org/wiki/Christina_Hoff_Sommers)

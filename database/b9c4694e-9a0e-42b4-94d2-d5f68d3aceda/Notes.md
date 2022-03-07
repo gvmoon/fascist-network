@@ -1,1 +1,0 @@
-﻿[Mohamed Sahnoun - Wikipedia](https://en.wikipedia.org/wiki/Mohamed_Sahnoun)

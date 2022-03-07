@@ -1,1 +1,0 @@
-﻿[Norman Birkett, 1st Baron Birkett - Wikipedia](https://en.wikipedia.org/wiki/Norman_Birkett,_1st_Baron_Birkett)

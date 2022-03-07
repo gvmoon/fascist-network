@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/James_I._McCord

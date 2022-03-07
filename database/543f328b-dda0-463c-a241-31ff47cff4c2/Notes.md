@@ -1,1 +1,0 @@
-﻿[Congress of Industrial Organizations - Wikipedia](https://en.wikipedia.org/wiki/Congress_of_Industrial_Organizations)

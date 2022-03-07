@@ -1,1 +1,0 @@
-﻿[Reverend Ike - Wikipedia](https://en.wikipedia.org/wiki/Reverend_Ike)

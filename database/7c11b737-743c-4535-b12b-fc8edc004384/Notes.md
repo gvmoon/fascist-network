@@ -1,1 +1,0 @@
-﻿[Necedah Shrine - Wikipedia](https://en.wikipedia.org/wiki/Necedah_Shrine)

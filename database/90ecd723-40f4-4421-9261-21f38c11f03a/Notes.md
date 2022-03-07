@@ -1,1 +1,0 @@
-﻿[Herbert C. Brown - Wikipedia](https://en.wikipedia.org/wiki/Herbert_C._Brown)

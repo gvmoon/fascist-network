@@ -1,1 +1,0 @@
-﻿[General Motors - Wikipedia](https://en.wikipedia.org/wiki/General_Motors)

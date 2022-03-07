@@ -1,0 +1,1 @@
+﻿[National Democratic Party of Germany - Wikipedia](https://en.wikipedia.org/wiki/National_Democratic_Party_of_Germany)

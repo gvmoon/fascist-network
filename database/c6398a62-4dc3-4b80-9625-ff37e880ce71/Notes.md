@@ -1,1 +1,0 @@
-﻿[Georgia Army National Guard - Wikipedia](https://en.wikipedia.org/wiki/Georgia_Army_National_Guard)

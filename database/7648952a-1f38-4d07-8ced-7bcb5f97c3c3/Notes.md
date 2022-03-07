@@ -1,1 +1,0 @@
-﻿[John M. Olin Foundation - Wikipedia](https://en.wikipedia.org/wiki/John_M._Olin_Foundation)

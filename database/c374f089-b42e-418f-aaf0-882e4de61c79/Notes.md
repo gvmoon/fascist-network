@@ -1,1 +1,0 @@
-﻿[Julius Friedrich Lehmann - Wikipedia](https://en.wikipedia.org/wiki/Julius_Friedrich_Lehmann)

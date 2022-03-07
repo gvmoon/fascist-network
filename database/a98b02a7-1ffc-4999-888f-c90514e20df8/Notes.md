@@ -1,1 +1,0 @@
-﻿[Edward S. Bragg - Wikipedia](https://en.wikipedia.org/wiki/Edward_S._Bragg)

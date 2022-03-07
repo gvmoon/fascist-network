@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Ludwig_Maximilian_University_of_Munich

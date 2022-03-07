@@ -1,1 +1,0 @@
-﻿[Moral Majority - Wikipedia](https://en.wikipedia.org/wiki/Moral_Majority)

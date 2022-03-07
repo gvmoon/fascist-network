@@ -1,1 +1,0 @@
-﻿[Henry M. Jackson - Wikipedia](https://en.wikipedia.org/wiki/Henry_M._Jackson)

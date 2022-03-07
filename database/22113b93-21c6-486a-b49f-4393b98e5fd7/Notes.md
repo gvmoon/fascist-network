@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Aimee_Semple_McPherson

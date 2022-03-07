@@ -1,0 +1,1 @@
+﻿[Spanish Solidarity - Wikipedia](https://en.wikipedia.org/wiki/Spanish_Solidarity)

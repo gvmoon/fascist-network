@@ -1,1 +1,0 @@
-﻿[Defense Policy Board Advisory Committee - Wikipedia](https://en.wikipedia.org/wiki/Defense_Policy_Board_Advisory_Committee)

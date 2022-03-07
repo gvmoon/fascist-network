@@ -1,1 +1,0 @@
-﻿[Ernst Kummer - Wikipedia](https://en.wikipedia.org/wiki/Ernst_Kummer)

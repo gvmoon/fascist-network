@@ -1,0 +1,1 @@
+﻿[Initiatives of Change - Wikipedia](https://en.wikipedia.org/wiki/Initiatives_of_Change)

@@ -1,1 +1,0 @@
-﻿[Raymond Chrétien - Wikipedia](https://en.wikipedia.org/wiki/Raymond_Chr%C3%A9tien)

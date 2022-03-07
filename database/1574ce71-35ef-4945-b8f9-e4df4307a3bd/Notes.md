@@ -1,1 +1,0 @@
-﻿[T. L. Osborn - Wikipedia](https://en.wikipedia.org/wiki/T._L._Osborn)

@@ -1,1 +1,0 @@
-﻿[Juan Vargas - Wikipedia](https://en.wikipedia.org/wiki/Juan_Vargas)

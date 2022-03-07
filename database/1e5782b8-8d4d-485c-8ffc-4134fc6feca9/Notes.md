@@ -1,1 +1,0 @@
-﻿[Jill Duggar Dillard - Wikipedia](https://en.wikipedia.org/wiki/Jill_Duggar_Dillard)

@@ -1,1 +1,0 @@
-﻿[L. Brent Bozell Jr. - Wikipedia](https://en.wikipedia.org/wiki/L._Brent_Bozell_Jr.)

@@ -1,1 +1,0 @@
-﻿[H. G. Wells - Wikipedia](https://en.wikipedia.org/wiki/H._G._Wells)

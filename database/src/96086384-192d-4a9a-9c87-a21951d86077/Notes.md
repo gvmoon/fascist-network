@@ -1,0 +1,1 @@
+﻿[William Luther Pierce - Wikipedia](https://en.wikipedia.org/wiki/William_Luther_Pierce)

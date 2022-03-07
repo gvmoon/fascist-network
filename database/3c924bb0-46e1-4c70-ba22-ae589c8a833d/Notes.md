@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Marcus_Wallenberg_(born_1956)

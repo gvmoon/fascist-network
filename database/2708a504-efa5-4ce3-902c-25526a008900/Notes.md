@@ -1,1 +1,0 @@
-﻿[American Civil Liberties Union - Wikipedia](https://en.wikipedia.org/wiki/American_Civil_Liberties_Union)

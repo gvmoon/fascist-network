@@ -1,1 +1,0 @@
-﻿[Emanuel Miller - Wikipedia](https://en.wikipedia.org/wiki/Emanuel_Miller)

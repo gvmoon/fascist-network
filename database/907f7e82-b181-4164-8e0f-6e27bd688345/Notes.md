@@ -1,1 +1,0 @@
-﻿[Thomas Robert Malthus - Wikipedia](https://en.wikipedia.org/wiki/Thomas_Robert_Malthus)

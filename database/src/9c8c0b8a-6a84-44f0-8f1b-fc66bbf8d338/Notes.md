@@ -1,0 +1,1 @@
+﻿[Socialist Reich Party - Wikipedia](https://en.wikipedia.org/wiki/Socialist_Reich_Party)

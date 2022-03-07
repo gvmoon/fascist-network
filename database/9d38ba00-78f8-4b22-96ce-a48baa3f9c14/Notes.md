@@ -1,1 +1,0 @@
-﻿[H. Evan Runner - Wikipedia](https://en.wikipedia.org/wiki/H._Evan_Runner)

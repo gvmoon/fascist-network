@@ -1,1 +1,0 @@
-﻿[Pentecostal Assemblies of the World - Wikipedia](https://en.wikipedia.org/wiki/Pentecostal_Assemblies_of_the_World)

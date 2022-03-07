@@ -1,1 +1,0 @@
-﻿[Union College - Wikipedia](https://en.wikipedia.org/wiki/Union_College)

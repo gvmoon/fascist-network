@@ -1,1 +1,0 @@
-﻿[International Pentecostal Holiness Church - Wikipedia](https://en.wikipedia.org/wiki/International_Pentecostal_Holiness_Church)

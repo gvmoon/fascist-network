@@ -1,1 +1,0 @@
-﻿[David Lloyd George - Wikipedia](https://en.wikipedia.org/wiki/David_Lloyd_George)

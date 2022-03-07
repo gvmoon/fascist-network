@@ -1,1 +1,0 @@
-﻿[Gabriel Bouck - Wikipedia](https://en.wikipedia.org/wiki/Gabriel_Bouck)

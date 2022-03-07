@@ -1,1 +1,0 @@
-﻿[Norman Topping - Wikipedia](https://en.wikipedia.org/wiki/Norman_Topping)

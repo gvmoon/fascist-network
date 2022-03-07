@@ -1,1 +1,0 @@
-﻿[Gestalt psychology - Wikipedia](https://en.wikipedia.org/wiki/Gestalt_psychology)

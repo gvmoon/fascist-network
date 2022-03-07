@@ -1,0 +1,1 @@
+﻿[Christian Social Party (Germany) - Wikipedia](https://en.wikipedia.org/wiki/Christian_Social_Party_(Germany))

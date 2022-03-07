@@ -1,1 +1,0 @@
-﻿[Harry Markowitz - Wikipedia](https://en.wikipedia.org/wiki/Harry_Markowitz)

@@ -1,1 +1,0 @@
-﻿[Frederick Gardner Cottrell - Wikipedia](https://en.wikipedia.org/wiki/Frederick_Gardner_Cottrell)

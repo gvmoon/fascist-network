@@ -1,1 +1,0 @@
-﻿[Chicago Federation of Labor - Wikipedia](https://en.wikipedia.org/wiki/Chicago_Federation_of_Labor)

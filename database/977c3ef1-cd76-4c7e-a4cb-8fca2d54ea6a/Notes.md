@@ -1,1 +1,0 @@
-﻿[National Geographic Society - Wikipedia](https://en.wikipedia.org/wiki/National_Geographic_Society)

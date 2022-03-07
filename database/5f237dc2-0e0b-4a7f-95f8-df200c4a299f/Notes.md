@@ -1,1 +1,0 @@
-﻿[Henry Petty-Fitzmaurice, 6th Marquess of Lansdowne - Wikipedia](https://en.wikipedia.org/wiki/Henry_Petty-Fitzmaurice,_6th_Marquess_of_Lansdowne#Political_career)

@@ -1,0 +1,1 @@
+﻿[Barbara Marx Hubbard - Wikipedia](https://en.wikipedia.org/wiki/Barbara_Marx_Hubbard)

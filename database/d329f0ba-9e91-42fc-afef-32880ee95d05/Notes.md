@@ -1,1 +1,0 @@
-﻿[Nelson W. Aldrich - Wikipedia](https://en.wikipedia.org/wiki/Nelson_W._Aldrich)

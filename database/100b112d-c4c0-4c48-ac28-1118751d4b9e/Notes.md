@@ -1,1 +1,0 @@
-﻿[William Shockley - Wikipedia](https://en.wikipedia.org/wiki/William_Shockley)

@@ -1,1 +1,0 @@
-﻿[Louis Wade Sullivan - Wikipedia](https://en.wikipedia.org/wiki/Louis_Wade_Sullivan)

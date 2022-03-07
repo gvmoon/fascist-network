@@ -1,1 +1,0 @@
-﻿[Institute for Creation Research - Wikipedia](https://en.wikipedia.org/wiki/Institute_for_Creation_Research)

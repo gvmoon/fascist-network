@@ -1,1 +1,0 @@
-﻿[Joseph Wharton - Wikipedia](https://en.wikipedia.org/wiki/Joseph_Wharton)

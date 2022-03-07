@@ -1,0 +1,1 @@
+﻿[Assemblies of God - Wikipedia](https://en.wikipedia.org/wiki/Assemblies_of_God)

@@ -1,1 +1,0 @@
-﻿[Terza Posizione - Wikipedia](https://en.wikipedia.org/wiki/Terza_Posizione)

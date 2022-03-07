@@ -1,1 +1,0 @@
-﻿[Karen Horney - Wikipedia](https://en.wikipedia.org/wiki/Karen_Horney)

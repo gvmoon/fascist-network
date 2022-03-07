@@ -1,1 +1,0 @@
-﻿[Alfred Adler - Wikipedia](https://en.wikipedia.org/wiki/Alfred_Adler)

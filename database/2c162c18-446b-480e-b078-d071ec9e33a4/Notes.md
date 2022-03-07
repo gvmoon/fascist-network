@@ -1,1 +1,0 @@
-﻿[Sylvia Payne - Wikipedia](https://en.wikipedia.org/wiki/Sylvia_Payne)

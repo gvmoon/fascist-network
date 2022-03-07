@@ -1,1 +1,0 @@
-﻿[Sidney Frank - Wikipedia](https://en.wikipedia.org/wiki/Sidney_Frank)

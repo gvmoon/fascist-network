@@ -1,1 +1,0 @@
-﻿[Erwin Schrödinger - Wikipedia](https://en.wikipedia.org/wiki/Erwin_Schr%C3%B6dinger)

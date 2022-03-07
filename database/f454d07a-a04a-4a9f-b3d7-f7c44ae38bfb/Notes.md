@@ -1,1 +1,0 @@
-﻿[Lawton Chiles - Wikipedia](https://en.wikipedia.org/wiki/Lawton_Chiles)

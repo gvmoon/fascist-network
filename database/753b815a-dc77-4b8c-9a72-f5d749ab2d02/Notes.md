@@ -1,1 +1,0 @@
-﻿[Axel Honneth - Wikipedia](https://en.wikipedia.org/wiki/Axel_Honneth)

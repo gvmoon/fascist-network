@@ -1,1 +1,0 @@
-﻿[Social-National Assembly - Wikipedia](https://en.wikipedia.org/wiki/Social-National_Assembly)

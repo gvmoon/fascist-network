@@ -1,1 +1,0 @@
-﻿[Book and Snake - Wikipedia](https://en.wikipedia.org/wiki/Book_and_Snake)

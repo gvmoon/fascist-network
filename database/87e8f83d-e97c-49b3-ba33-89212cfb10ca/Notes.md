@@ -1,3 +1,0 @@
-﻿[William J. Flake - Wikipedia](https://en.wikipedia.org/wiki/William_J._Flake)
-
-**William Jordan Flake** (July 3, 1839 – August 10, 1932)^[1]^^[2]^^[3]^ was a prominent member of [The Church of Jesus Christ of Latter-day Saints](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints"), who helped settle parts of [Arizona](https://en.wikipedia.org/wiki/Arizona "Arizona"), and was imprisoned at the [Yuma Territorial Prison](https://en.wikipedia.org/wiki/Yuma_Territorial_Prison "Yuma Territorial Prison") for [polygamy](https://en.wikipedia.org/wiki/Polygamy "Polygamy").^[4]^

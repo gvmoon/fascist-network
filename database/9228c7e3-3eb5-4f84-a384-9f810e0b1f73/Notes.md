@@ -1,1 +1,0 @@
-﻿[Juntas Españolas - Wikipedia](https://en.wikipedia.org/wiki/Juntas_Espa%C3%B1olas)

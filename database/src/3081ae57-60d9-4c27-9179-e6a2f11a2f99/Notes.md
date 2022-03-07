@@ -1,0 +1,1 @@
+﻿[William Walker Scranton - Wikipedia](https://en.wikipedia.org/wiki/William_Walker_Scranton)

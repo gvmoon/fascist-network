@@ -1,1 +1,0 @@
-﻿[501(c)(3) organization - Wikipedia](https://en.wikipedia.org/wiki/501(c)(3))

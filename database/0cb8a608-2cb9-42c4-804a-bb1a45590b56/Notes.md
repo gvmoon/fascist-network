@@ -1,1 +1,0 @@
-﻿[Reinhart Koselleck - Wikipedia](https://en.wikipedia.org/wiki/Reinhart_Koselleck)

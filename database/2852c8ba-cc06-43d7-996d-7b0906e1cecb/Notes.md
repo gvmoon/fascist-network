@@ -1,1 +1,0 @@
-﻿[Michael Bloomberg - Wikipedia](https://en.wikipedia.org/wiki/Michael_Bloomberg)

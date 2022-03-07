@@ -1,1 +1,0 @@
-﻿[Nina Rosenwald - Wikipedia](https://en.wikipedia.org/wiki/Nina_Rosenwald)

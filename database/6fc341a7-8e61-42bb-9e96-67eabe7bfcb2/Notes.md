@@ -1,1 +1,0 @@
-﻿[Young America's Foundation - Wikipedia](https://en.wikipedia.org/wiki/Young_America%27s_Foundation)

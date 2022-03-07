@@ -1,1 +1,0 @@
-﻿[Lutheran Theological Seminary at Philadelphia - Wikipedia](https://en.wikipedia.org/wiki/Lutheran_Theological_Seminary_at_Philadelphia)

@@ -1,1 +1,0 @@
-﻿[Aleister Crowley - Wikipedia](https://en.wikipedia.org/wiki/Aleister_Crowley)

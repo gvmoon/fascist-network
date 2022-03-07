@@ -1,1 +1,0 @@
-﻿[Sun Myung Moon - Wikipedia](https://en.wikipedia.org/wiki/Sun_Myung_Moon)

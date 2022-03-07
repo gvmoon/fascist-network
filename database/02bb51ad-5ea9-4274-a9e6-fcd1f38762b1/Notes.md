@@ -1,1 +1,0 @@
-﻿[Wassily Kandinsky - Wikipedia](https://en.wikipedia.org/wiki/Wassily_Kandinsky)

@@ -1,0 +1,1 @@
+﻿[Parler - Wikipedia](https://en.wikipedia.org/wiki/Parler)

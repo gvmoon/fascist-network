@@ -1,1 +1,0 @@
-﻿[Jan Nieuwenhuyzen - Wikipedia](https://nl.wikipedia.org/wiki/Jan_Nieuwenhuyzen)

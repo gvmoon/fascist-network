@@ -1,1 +1,0 @@
-﻿[Accuracy in Media - Wikipedia](https://en.wikipedia.org/wiki/Accuracy_in_Media)

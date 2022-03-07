@@ -1,1 +1,0 @@
-﻿[United States Information Agency - Wikipedia](https://en.wikipedia.org/wiki/United_States_Information_Agency)

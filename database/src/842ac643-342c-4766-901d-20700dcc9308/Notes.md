@@ -1,0 +1,1 @@
+﻿[Advocacy group - Wikipedia](https://en.wikipedia.org/wiki/Interest_group)

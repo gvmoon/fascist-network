@@ -1,1 +1,0 @@
-﻿[G. K. Chesterton - Wikipedia](https://en.wikipedia.org/wiki/G._K._Chesterton)

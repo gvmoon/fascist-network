@@ -1,1 +1,0 @@
-﻿[Bob Jones Sr. - Wikipedia](https://en.wikipedia.org/wiki/Bob_Jones_Sr.)

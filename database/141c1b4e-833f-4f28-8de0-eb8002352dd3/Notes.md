@@ -1,1 +1,0 @@
-﻿[Robert L. Shevin - Wikipedia](https://en.wikipedia.org/wiki/Robert_L._Shevin)

@@ -1,1 +1,0 @@
-﻿[Paul Warburg - Wikipedia](https://en.wikipedia.org/wiki/Paul_Warburg)

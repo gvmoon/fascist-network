@@ -1,1 +1,0 @@
-﻿[Georg Wilhelm Friedrich Hegel - Wikipedia](https://en.wikipedia.org/wiki/Georg_Wilhelm_Friedrich_Hegel)

@@ -1,1 +1,0 @@
-﻿[John Turner - Wikipedia](https://en.wikipedia.org/wiki/John_Turner)

@@ -1,1 +1,0 @@
-﻿[Wilhelm Frick - Wikipedia](https://en.wikipedia.org/wiki/Wilhelm_Frick)

@@ -1,1 +1,0 @@
-﻿[Larry Burkett - Wikipedia](https://en.wikipedia.org/wiki/Larry_Burkett)

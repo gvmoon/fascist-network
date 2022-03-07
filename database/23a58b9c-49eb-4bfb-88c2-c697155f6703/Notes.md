@@ -1,1 +1,0 @@
-﻿[Pat Buchanan - Wikipedia](https://en.wikipedia.org/wiki/Pat_Buchanan)

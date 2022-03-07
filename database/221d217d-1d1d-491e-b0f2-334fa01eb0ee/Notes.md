@@ -1,1 +1,0 @@
-﻿[Alfred Matthew Hubbard - Wikipedia](https://en.wikipedia.org/wiki/Alfred_Matthew_Hubbard)

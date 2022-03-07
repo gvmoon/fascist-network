@@ -1,1 +1,0 @@
-﻿[Irish Catholics - Wikipedia](https://en.wikipedia.org/wiki/Irish_Catholics)

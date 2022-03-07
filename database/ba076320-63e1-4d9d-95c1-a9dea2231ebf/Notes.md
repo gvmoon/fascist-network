@@ -1,1 +1,0 @@
-﻿[Prince Andrew, Duke of York - Wikipedia](https://en.wikipedia.org/wiki/Prince_Andrew,_Duke_of_York)

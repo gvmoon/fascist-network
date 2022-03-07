@@ -1,1 +1,0 @@
-﻿[Adlai Stevenson II - Wikipedia](https://en.wikipedia.org/wiki/Adlai_Stevenson_II)

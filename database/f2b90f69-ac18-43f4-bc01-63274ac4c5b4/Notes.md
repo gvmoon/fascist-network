@@ -1,1 +1,0 @@
-﻿[Polish Brethren - Wikipedia](https://en.wikipedia.org/wiki/Polish_Brethren)

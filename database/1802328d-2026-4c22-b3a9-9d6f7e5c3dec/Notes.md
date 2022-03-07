@@ -1,1 +1,0 @@
-﻿[Jan Schenkman - Wikipedia](https://nl.wikipedia.org/wiki/Jan_Schenkman)

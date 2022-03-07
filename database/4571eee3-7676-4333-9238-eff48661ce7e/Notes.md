@@ -1,1 +1,0 @@
-﻿[Beth Myers - Wikipedia](https://en.wikipedia.org/wiki/Beth_Myers)

@@ -1,1 +1,0 @@
-﻿[God's Bible School and College - Wikipedia](https://en.wikipedia.org/wiki/God%27s_Bible_School_and_College)

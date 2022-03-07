@@ -1,1 +1,0 @@
-﻿[National Endowment for Democracy - Wikipedia](https://en.wikipedia.org/wiki/National_Endowment_for_Democracy)

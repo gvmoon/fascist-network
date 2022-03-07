@@ -1,1 +1,0 @@
-﻿[Confederate States Army - Wikipedia](https://en.wikipedia.org/wiki/Confederate_States_Army)

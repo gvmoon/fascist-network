@@ -1,1 +1,0 @@
-﻿[Wilhelm II, German Emperor - Wikipedia](https://en.wikipedia.org/wiki/Wilhelm_II,_German_Emperor)

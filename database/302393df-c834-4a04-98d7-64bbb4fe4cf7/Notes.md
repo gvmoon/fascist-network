@@ -1,1 +1,0 @@
-﻿[Cenk Uygur - Wikipedia](https://en.wikipedia.org/wiki/Cenk_Uygur)

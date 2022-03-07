@@ -1,0 +1,1 @@
+﻿[William W. Thomas Jr. - Wikipedia](https://en.wikipedia.org/wiki/William_W._Thomas_Jr.)

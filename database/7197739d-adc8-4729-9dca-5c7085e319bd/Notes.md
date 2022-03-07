@@ -1,1 +1,0 @@
-﻿[Rick Perry - Wikipedia](https://en.wikipedia.org/wiki/Rick_Perry)

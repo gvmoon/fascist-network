@@ -1,0 +1,1 @@
+﻿[Alan S. Boyd - Wikipedia](https://en.wikipedia.org/wiki/Alan_S._Boyd)

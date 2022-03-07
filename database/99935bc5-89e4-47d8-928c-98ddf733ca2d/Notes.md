@@ -1,1 +1,0 @@
-﻿[Maria Montessori - Wikipedia](https://en.wikipedia.org/wiki/Maria_Montessori)

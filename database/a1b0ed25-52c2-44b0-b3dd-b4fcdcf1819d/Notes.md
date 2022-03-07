@@ -1,1 +1,0 @@
-﻿[Methodist Protestant Church - Wikipedia](https://en.wikipedia.org/wiki/Methodist_Protestant_Church)

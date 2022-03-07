@@ -1,1 +1,0 @@
-﻿[Edmund Asa Ware - Wikipedia](https://en.wikipedia.org/wiki/Edmund_Asa_Ware)

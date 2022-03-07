@@ -1,1 +1,0 @@
-﻿[Daniel J. Quinn - Wikipedia](https://en.wikipedia.org/wiki/Daniel_J._Quinn)

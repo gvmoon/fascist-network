@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Katherine_St._George

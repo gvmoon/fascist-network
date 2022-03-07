@@ -1,0 +1,1 @@
+﻿[George Ripley (transcendentalist) - Wikipedia](https://en.wikipedia.org/wiki/George_Ripley_(transcendentalist))

@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Frank_Meyer_(political_philosopher)

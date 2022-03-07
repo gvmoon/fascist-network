@@ -1,1 +1,0 @@
-﻿[Ramesh Ponnuru - Wikipedia](https://en.wikipedia.org/wiki/Ramesh_Ponnuru)

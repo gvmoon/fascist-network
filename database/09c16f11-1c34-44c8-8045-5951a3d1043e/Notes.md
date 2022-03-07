@@ -1,1 +1,0 @@
-﻿[Information Council of the Americas INCA](https://cuban-exile.com/doc_076-100/doc0078.html)

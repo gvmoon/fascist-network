@@ -1,1 +1,0 @@
-﻿[American Express - Wikipedia](https://en.wikipedia.org/wiki/American_Express)

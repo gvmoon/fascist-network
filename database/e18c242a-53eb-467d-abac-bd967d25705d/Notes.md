@@ -1,1 +1,0 @@
-﻿[Presbyterian Church in America - Wikipedia](https://en.wikipedia.org/wiki/Presbyterian_Church_in_America)

@@ -1,1 +1,0 @@
-﻿[American Nazi Party - Wikipedia](https://en.wikipedia.org/wiki/American_Nazi_Party#Name_change_and_party_reform)

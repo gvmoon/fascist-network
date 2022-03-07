@@ -1,1 +1,0 @@
-﻿[University of Marburg - Wikipedia](https://en.wikipedia.org/wiki/University_of_Marburg)

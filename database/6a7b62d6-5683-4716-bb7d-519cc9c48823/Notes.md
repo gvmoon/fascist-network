@@ -1,1 +1,0 @@
-﻿[David S. Cohen (attorney) - Wikipedia](https://en.wikipedia.org/wiki/David_S._Cohen_(attorney))

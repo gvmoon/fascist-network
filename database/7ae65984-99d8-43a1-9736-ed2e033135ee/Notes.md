@@ -1,1 +1,0 @@
-﻿[Samuel Goldwyn - Wikipedia](https://en.wikipedia.org/wiki/Samuel_Goldwyn)

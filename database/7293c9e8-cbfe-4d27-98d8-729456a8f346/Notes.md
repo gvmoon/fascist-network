@@ -1,1 +1,0 @@
-﻿[George Berkeley - Wikipedia](https://en.wikipedia.org/wiki/George_Berkeley)

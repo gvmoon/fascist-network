@@ -1,1 +1,0 @@
-﻿[Chandler David Owens Sr. - Wikipedia](https://en.wikipedia.org/wiki/Chandler_David_Owens_Sr.)

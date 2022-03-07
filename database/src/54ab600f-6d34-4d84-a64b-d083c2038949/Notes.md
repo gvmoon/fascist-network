@@ -1,0 +1,1 @@
+﻿[Ronald Reagan - Wikipedia](https://en.wikipedia.org/wiki/Ronald_Reagan)

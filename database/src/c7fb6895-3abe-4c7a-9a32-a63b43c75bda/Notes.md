@@ -1,0 +1,1 @@
+﻿[Liberal Party (South Korea) - Wikipedia](https://en.wikipedia.org/wiki/Liberal_Party_(South_Korea))

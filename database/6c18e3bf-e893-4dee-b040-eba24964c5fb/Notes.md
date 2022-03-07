@@ -1,1 +1,0 @@
-﻿[Robert Mosbacher - Wikipedia](https://en.wikipedia.org/wiki/Robert_Mosbacher)

@@ -1,1 +1,0 @@
-﻿[John Gill (theologian) - Wikipedia](https://en.wikipedia.org/wiki/John_Gill_(theologian))

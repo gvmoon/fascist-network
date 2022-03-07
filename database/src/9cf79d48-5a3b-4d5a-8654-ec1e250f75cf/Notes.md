@@ -1,0 +1,1 @@
+﻿[Ronald Perelman - Wikipedia](https://en.wikipedia.org/wiki/Ronald_Perelman)

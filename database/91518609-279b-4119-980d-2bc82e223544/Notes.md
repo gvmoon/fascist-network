@@ -1,1 +1,0 @@
-﻿[Ivan Yefremov - Wikipedia](https://en.wikipedia.org/wiki/Ivan_Yefremov)

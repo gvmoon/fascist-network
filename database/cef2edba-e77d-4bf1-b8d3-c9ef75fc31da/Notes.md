@@ -1,1 +1,0 @@
-﻿[Debra W. Soh - Wikipedia](https://en.wikipedia.org/wiki/Debra_W._Soh)

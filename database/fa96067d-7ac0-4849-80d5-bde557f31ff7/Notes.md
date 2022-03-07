@@ -1,1 +1,0 @@
-﻿[Evangelical Wesleyan Bible Institute - Wikipedia](https://en.wikipedia.org/wiki/Evangelical_Wesleyan_Bible_Institute)

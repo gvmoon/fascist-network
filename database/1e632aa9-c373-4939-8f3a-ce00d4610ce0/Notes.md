@@ -1,1 +1,0 @@
-﻿[Rajiv Shah - Wikipedia](https://en.wikipedia.org/wiki/Rajiv_Shah)

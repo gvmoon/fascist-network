@@ -1,1 +1,0 @@
-﻿[Frederic Henry Hedge - Wikipedia](https://en.wikipedia.org/wiki/Frederic_Henry_Hedge)

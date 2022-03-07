@@ -1,1 +1,0 @@
-﻿[Erich Raeder - Wikipedia](https://en.wikipedia.org/wiki/Erich_Raeder)

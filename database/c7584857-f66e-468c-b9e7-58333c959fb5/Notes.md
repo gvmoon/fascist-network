@@ -1,1 +1,0 @@
-﻿[Johan Mekkes - Wikipedia](https://en.wikipedia.org/wiki/Johan_Mekkes)

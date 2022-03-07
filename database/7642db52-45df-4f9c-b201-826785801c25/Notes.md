@@ -1,1 +1,0 @@
-﻿[Russell Bowers - Wikipedia](https://en.wikipedia.org/wiki/Russell_Bowers)

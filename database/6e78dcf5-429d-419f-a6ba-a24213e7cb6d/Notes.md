@@ -1,1 +1,0 @@
-﻿[DePauw University - Wikipedia](https://en.wikipedia.org/wiki/DePauw_University)

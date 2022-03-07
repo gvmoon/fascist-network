@@ -1,2 +1,0 @@
-﻿[Winnetka’s First Real Estate Boom a Bust | Winnetka Historical Society](https://www.winnetkahistory.org/gazette/winnetkas-first-real-estate-boom/)
-[Henrietta Mears: Grandmother of the Apostate Church – The Watchman Wakes](https://thewatchmanwakes.org/henrietta-mears-the-grandmother-of-the-apostate-church/)

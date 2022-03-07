@@ -1,1 +1,0 @@
-﻿[Theodotus of Byzantium - Wikipedia](https://en.wikipedia.org/wiki/Theodotus_of_Byzantium)

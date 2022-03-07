@@ -1,1 +1,0 @@
-﻿[Theocracy - Wikipedia](https://en.wikipedia.org/wiki/Theocracy)

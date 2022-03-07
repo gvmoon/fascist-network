@@ -1,1 +1,0 @@
-﻿[Howard Buffett - Wikipedia](https://en.wikipedia.org/wiki/Howard_Buffett)

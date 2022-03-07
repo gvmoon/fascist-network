@@ -1,1 +1,0 @@
-﻿[Frederick Ferris Thompson - Wikipedia](https://en.wikipedia.org/wiki/Frederick_Ferris_Thompson)

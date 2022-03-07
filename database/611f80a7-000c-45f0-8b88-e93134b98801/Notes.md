@@ -1,1 +1,0 @@
-﻿[Animal magnetism - Wikipedia](https://en.wikipedia.org/wiki/Animal_magnetism)

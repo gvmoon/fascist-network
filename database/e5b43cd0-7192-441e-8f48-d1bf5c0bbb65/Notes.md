@@ -1,1 +1,0 @@
-﻿[Operation PBHistory - Wikipedia](https://en.wikipedia.org/wiki/Operation_PBHistory)

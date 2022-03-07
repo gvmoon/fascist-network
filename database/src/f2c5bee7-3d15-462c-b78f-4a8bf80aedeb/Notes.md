@@ -1,0 +1,1 @@
+﻿[Bill Clinton 1992 presidential campaign - Wikipedia](https://en.wikipedia.org/wiki/Bill_Clinton_1992_presidential_campaign)

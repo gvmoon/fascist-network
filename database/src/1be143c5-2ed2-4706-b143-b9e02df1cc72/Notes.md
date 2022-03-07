@@ -1,0 +1,1 @@
+﻿[Carroll Quigley - Wikipedia](https://en.wikipedia.org/wiki/Carroll_Quigley)

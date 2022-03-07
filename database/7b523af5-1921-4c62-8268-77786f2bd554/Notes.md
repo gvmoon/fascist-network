@@ -1,1 +1,0 @@
-﻿[God's Missionary Church - Wikipedia](https://en.wikipedia.org/wiki/God%27s_Missionary_Church)

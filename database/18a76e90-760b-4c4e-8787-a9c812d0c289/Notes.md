@@ -1,1 +1,0 @@
-﻿[William Frankena - Wikipedia](https://en.wikipedia.org/wiki/William_Frankena)

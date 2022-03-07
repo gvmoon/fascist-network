@@ -1,1 +1,0 @@
-﻿[Progressive National Baptist Convention - Wikipedia](https://en.wikipedia.org/wiki/Progressive_National_Baptist_Convention)

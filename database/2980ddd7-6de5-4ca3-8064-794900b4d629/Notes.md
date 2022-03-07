@@ -1,1 +1,0 @@
-﻿[Bart D. Ehrman - Wikipedia](https://en.wikipedia.org/wiki/Bart_D._Ehrman)

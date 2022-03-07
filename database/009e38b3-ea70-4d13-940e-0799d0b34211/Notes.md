@@ -1,1 +1,0 @@
-﻿[Institute of Pacific Relations - Wikipedia](https://en.wikipedia.org/wiki/Institute_of_Pacific_Relations)

@@ -1,1 +1,0 @@
-﻿[Kappa Sigma - Wikipedia](https://en.wikipedia.org/wiki/Kappa_Sigma)

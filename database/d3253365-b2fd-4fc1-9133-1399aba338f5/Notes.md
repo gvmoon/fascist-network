@@ -1,1 +1,0 @@
-﻿[Benjamin L. Corey - Wikipedia](https://en.wikipedia.org/wiki/Benjamin_L._Corey)

@@ -1,1 +1,0 @@
-﻿[Kansas Christian College (Overland Park) - Wikipedia](https://en.wikipedia.org/wiki/Kansas_Christian_College_(Overland_Park))

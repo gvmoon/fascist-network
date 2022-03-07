@@ -1,1 +1,0 @@
-﻿[Samuel K. Skinner - Wikipedia](https://en.wikipedia.org/wiki/Samuel_K._Skinner)

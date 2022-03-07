@@ -1,1 +1,0 @@
-﻿[Walter Paepcke - Wikipedia](https://en.wikipedia.org/wiki/Walter_Paepcke)

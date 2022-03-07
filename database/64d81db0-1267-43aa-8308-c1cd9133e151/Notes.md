@@ -1,1 +1,0 @@
-﻿[Kevin Spacey - Wikipedia](https://en.wikipedia.org/wiki/Kevin_Spacey)

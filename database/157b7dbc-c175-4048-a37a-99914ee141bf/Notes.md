@@ -1,1 +1,0 @@
-﻿[Gina Grant college admissions controversy - Wikipedia](https://en.wikipedia.org/wiki/Gina_Grant_college_admissions_controversy)

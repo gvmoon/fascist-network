@@ -1,0 +1,1 @@
+﻿[Johann Gottlieb Fichte - Wikipedia](https://en.wikipedia.org/wiki/Johann_Gottlieb_Fichte)

@@ -1,1 +1,0 @@
-﻿[Sharron Angle - Wikipedia](https://en.wikipedia.org/wiki/Sharron_Angle)

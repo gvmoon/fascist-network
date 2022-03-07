@@ -1,1 +1,0 @@
-﻿[Azusa Street Revival - Wikipedia](https://en.wikipedia.org/wiki/Azusa_Street_Revival)

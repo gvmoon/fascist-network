@@ -1,1 +1,0 @@
-﻿[Connie Mack III - Wikipedia](https://en.wikipedia.org/wiki/Connie_Mack_III)

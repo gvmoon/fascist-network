@@ -1,1 +1,0 @@
-﻿[Frances Tustin - Wikipedia](https://en.wikipedia.org/wiki/Frances_Tustin)

@@ -1,1 +1,0 @@
-﻿[United States Army Air Corps - Wikipedia](https://en.wikipedia.org/wiki/United_States_Army_Air_Corps)

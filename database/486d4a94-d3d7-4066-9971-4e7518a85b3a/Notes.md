@@ -1,1 +1,0 @@
-﻿[JPMorgan Chase - Wikipedia](https://en.wikipedia.org/wiki/JPMorgan_Chase)

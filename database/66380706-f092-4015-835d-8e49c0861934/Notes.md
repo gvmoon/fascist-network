@@ -1,1 +1,0 @@
-﻿[Pierre Teilhard de Chardin - Wikipedia](https://en.wikipedia.org/wiki/Pierre_Teilhard_de_Chardin)

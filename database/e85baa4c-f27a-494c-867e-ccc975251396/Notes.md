@@ -1,1 +1,0 @@
-﻿[Henrietta Mears: Grandmother of the Apostate Church – The Watchman Wakes](https://thewatchmanwakes.org/henrietta-mears-the-grandmother-of-the-apostate-church/)

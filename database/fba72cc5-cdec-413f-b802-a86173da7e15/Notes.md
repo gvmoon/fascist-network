@@ -1,1 +1,0 @@
-﻿[Jules Verne - Wikipedia](https://en.wikipedia.org/wiki/Jules_Verne)

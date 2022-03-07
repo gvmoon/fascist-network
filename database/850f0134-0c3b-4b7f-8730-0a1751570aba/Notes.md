@@ -1,1 +1,0 @@
-﻿[Power Line - Wikipedia](https://en.wikipedia.org/wiki/Power_Line)

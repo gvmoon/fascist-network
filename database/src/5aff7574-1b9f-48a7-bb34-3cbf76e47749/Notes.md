@@ -1,0 +1,1 @@
+﻿[Hannah Arendt - Wikipedia](https://en.wikipedia.org/wiki/Hannah_Arendt)

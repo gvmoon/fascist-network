@@ -1,1 +1,0 @@
-﻿[Focus on the Family - Wikipedia](https://en.wikipedia.org/wiki/Focus_on_the_Family)

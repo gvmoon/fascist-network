@@ -1,1 +1,0 @@
-﻿[Joshua Kushner - Wikipedia](https://en.wikipedia.org/wiki/Joshua_Kushner)

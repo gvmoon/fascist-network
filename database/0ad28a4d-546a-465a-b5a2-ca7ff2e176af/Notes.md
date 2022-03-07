@@ -1,1 +1,0 @@
-﻿[W. R. Grace and Company - Wikipedia](https://en.wikipedia.org/wiki/W._R._Grace_and_Company)

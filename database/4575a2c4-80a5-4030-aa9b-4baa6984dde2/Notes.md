@@ -1,1 +1,0 @@
-﻿[National Front (UK) - Wikipedia](https://en.wikipedia.org/wiki/National_Front_(UK))

@@ -1,1 +1,0 @@
-﻿[University of Southern California - Wikipedia](https://en.wikipedia.org/wiki/University_of_Southern_California)

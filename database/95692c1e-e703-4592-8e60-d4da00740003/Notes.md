@@ -1,1 +1,0 @@
-﻿[Carl Vinson - Wikipedia](https://en.wikipedia.org/wiki/Carl_Vinson)

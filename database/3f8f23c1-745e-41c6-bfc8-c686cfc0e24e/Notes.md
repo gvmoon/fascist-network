@@ -1,1 +1,0 @@
-﻿[Howard L. Morgan - Wikipedia](https://en.wikipedia.org/wiki/Howard_L._Morgan)

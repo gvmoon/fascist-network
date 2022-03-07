@@ -1,1 +1,0 @@
-﻿[Robert R. Bowie - Wikipedia](https://en.wikipedia.org/wiki/Robert_R._Bowie)

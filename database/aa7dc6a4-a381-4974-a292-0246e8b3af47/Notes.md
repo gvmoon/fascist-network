@@ -1,1 +1,0 @@
-﻿[Campbell Stuart - Wikipedia](https://en.wikipedia.org/wiki/Campbell_Stuart)

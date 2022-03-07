@@ -1,1 +1,0 @@
-﻿[Asbury Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Asbury_Theological_Seminary)

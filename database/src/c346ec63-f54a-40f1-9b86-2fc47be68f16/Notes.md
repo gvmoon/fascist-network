@@ -1,0 +1,1 @@
+﻿[Boston Theological Interreligious Consortium - Wikipedia](https://en.wikipedia.org/wiki/Boston_Theological_Interreligious_Consortium)

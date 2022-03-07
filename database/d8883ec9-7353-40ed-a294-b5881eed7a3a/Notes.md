@@ -1,1 +1,0 @@
-﻿[Gregory Berns - Wikipedia](https://en.wikipedia.org/wiki/Gregory_Berns)

@@ -1,1 +1,0 @@
-﻿[Max Horkheimer - Wikipedia](https://en.wikipedia.org/wiki/Max_Horkheimer)

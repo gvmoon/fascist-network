@@ -1,1 +1,0 @@
-﻿[Christians United for Israel - Wikipedia](https://en.wikipedia.org/wiki/Christians_United_for_Israel)

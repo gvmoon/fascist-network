@@ -1,0 +1,1 @@
+﻿[Yale University - Wikipedia](https://en.wikipedia.org/wiki/Yale_University)

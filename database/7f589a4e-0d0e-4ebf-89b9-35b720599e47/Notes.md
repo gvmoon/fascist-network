@@ -1,1 +1,0 @@
-﻿[Walther Funk - Wikipedia](https://en.wikipedia.org/wiki/Walther_Funk)

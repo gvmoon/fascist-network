@@ -1,1 +1,0 @@
-﻿[Jay Van Andel - Wikipedia](https://en.wikipedia.org/wiki/Jay_Van_Andel)

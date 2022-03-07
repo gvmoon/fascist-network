@@ -1,1 +1,0 @@
-﻿[Hammerskins - Wikipedia](https://en.wikipedia.org/wiki/Hammerskins)

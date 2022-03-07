@@ -1,1 +1,0 @@
-﻿[J. B. Chapman - Wikipedia](https://en.wikipedia.org/wiki/J._B._Chapman)

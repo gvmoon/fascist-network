@@ -1,1 +1,0 @@
-﻿[Crusade for Freedom - Wikipedia](https://en.wikipedia.org/wiki/Crusade_for_Freedom)

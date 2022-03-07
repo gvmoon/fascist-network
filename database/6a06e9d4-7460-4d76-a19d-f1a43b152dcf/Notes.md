@@ -1,1 +1,0 @@
-﻿[Bethel College (Kansas) - Wikipedia](https://en.wikipedia.org/wiki/Bethel_College_(Kansas))

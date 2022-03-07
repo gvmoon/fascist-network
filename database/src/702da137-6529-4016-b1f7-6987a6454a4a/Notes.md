@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Dani%C3%ABl_Heinsius

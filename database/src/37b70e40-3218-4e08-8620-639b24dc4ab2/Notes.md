@@ -1,0 +1,1 @@
+﻿[The New York Times - Wikipedia](https://en.wikipedia.org/wiki/The_New_York_Times)

@@ -1,1 +1,0 @@
-﻿[Patriot of Ukraine - Wikipedia](https://en.wikipedia.org/wiki/Patriot_of_Ukraine)

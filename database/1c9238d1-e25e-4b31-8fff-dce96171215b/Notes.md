@@ -1,1 +1,0 @@
-﻿[Al Cárdenas - Wikipedia](https://en.wikipedia.org/wiki/Al_Cardenas)

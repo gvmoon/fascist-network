@@ -1,1 +1,0 @@
-﻿[Church of Scientology - Wikipedia](https://en.wikipedia.org/wiki/Church_of_Scientology)

@@ -1,1 +1,0 @@
-﻿[W. Robert Godfrey - Wikipedia](https://en.wikipedia.org/wiki/W._Robert_Godfrey)

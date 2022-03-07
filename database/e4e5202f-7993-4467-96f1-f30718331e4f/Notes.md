@@ -1,1 +1,0 @@
-﻿[Human Potential Movement - Wikipedia](https://en.wikipedia.org/wiki/Human_Potential_Movement)

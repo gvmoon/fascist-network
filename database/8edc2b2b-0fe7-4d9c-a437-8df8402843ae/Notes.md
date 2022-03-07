@@ -1,1 +1,0 @@
-﻿[National Bank of Detroit - Wikipedia](https://en.wikipedia.org/wiki/National_Bank_of_Detroit)

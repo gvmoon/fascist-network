@@ -1,1 +1,0 @@
-﻿[Ivana Trump - Wikipedia](https://en.wikipedia.org/wiki/Ivana_Trump)

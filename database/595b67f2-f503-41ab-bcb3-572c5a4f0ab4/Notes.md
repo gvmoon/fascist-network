@@ -1,1 +1,0 @@
-﻿[John Derg Sutherland - Wikipedia](https://en.wikipedia.org/wiki/John_Derg_Sutherland)

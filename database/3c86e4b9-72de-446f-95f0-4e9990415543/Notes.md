@@ -1,1 +1,0 @@
-﻿[Frederick Manfred - Wikipedia](https://en.wikipedia.org/wiki/Frederick_Manfred)

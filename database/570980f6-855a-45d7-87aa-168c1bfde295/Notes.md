@@ -1,1 +1,0 @@
-﻿[First Protestant Reformed Church in Grand Rapids, Michigan - Wikipedia](https://en.wikipedia.org/wiki/First_Protestant_Reformed_Church_in_Grand_Rapids,_Michigan)

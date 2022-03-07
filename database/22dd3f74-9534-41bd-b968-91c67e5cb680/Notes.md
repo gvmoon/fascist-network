@@ -1,1 +1,0 @@
-﻿[Benjamin Peirce - Wikipedia](https://en.wikipedia.org/wiki/Benjamin_Peirce)

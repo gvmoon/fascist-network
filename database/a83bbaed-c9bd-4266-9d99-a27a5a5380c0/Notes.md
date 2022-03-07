@@ -1,1 +1,0 @@
-﻿[Anglican Church of Canada - Wikipedia](https://en.wikipedia.org/wiki/Anglican_Church_of_Canada)

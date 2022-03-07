@@ -1,1 +1,0 @@
-﻿[Franklin W. Olin - Wikipedia](https://en.wikipedia.org/wiki/Franklin_W._Olin)

@@ -1,1 +1,0 @@
-﻿[Crossfire (American TV program) - Wikipedia](https://en.wikipedia.org/wiki/Crossfire_(U.S._TV_program))

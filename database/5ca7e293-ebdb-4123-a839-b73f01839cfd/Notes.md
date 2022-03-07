@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Pete_du_Pont

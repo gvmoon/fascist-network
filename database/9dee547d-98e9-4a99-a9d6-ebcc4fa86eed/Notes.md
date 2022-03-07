@@ -1,1 +1,0 @@
-﻿[W. E. B. Du Bois - Wikipedia](https://en.wikipedia.org/wiki/W._E._B._Du_Bois)

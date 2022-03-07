@@ -1,1 +1,0 @@
-﻿[Dov Seidman - Wikipedia](https://en.wikipedia.org/wiki/Dov_Seidman)

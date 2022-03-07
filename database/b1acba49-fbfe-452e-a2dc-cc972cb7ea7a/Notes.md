@@ -1,1 +1,0 @@
-﻿[Wheaton College (Illinois) - Wikipedia](https://en.wikipedia.org/wiki/Wheaton_College_(Illinois))

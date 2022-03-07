@@ -1,1 +1,0 @@
-﻿[Jerry Zandstra - Wikipedia](https://en.wikipedia.org/wiki/Jerry_Zandstra)

@@ -1,1 +1,0 @@
-﻿[William A. Slater - Wikipedia](https://en.wikipedia.org/wiki/William_A._Slater)

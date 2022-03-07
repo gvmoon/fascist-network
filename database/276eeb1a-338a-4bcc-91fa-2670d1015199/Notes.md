@@ -1,1 +1,0 @@
-﻿[Jeremy Boreing - Wikipedia](https://en.wikipedia.org/wiki/Jeremy_Boreing)

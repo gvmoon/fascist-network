@@ -1,1 +1,0 @@
-﻿[University of Denver - Wikipedia](https://en.wikipedia.org/wiki/University_of_Denver)

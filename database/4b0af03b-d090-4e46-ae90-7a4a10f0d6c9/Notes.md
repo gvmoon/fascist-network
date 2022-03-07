@@ -1,1 +1,0 @@
-﻿[Chemical Bank - Wikipedia](https://en.wikipedia.org/wiki/Chemical_Bank)

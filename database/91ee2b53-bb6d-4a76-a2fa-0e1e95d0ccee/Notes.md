@@ -1,1 +1,0 @@
-﻿[Ohio Northern University - Wikipedia](https://en.wikipedia.org/wiki/Ohio_Northern_University)

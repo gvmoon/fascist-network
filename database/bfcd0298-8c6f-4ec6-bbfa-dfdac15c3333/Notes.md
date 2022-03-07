@@ -1,1 +1,0 @@
-﻿[Josemaría Escrivá - Wikipedia](https://en.wikipedia.org/wiki/Josemar%C3%ADa_Escriv%C3%A1)

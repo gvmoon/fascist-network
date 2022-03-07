@@ -1,1 +1,0 @@
-﻿[Charles Edward Blake Sr. - Wikipedia](https://en.wikipedia.org/wiki/Charles_Edward_Blake,_Sr.)

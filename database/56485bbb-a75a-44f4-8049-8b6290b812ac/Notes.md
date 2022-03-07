@@ -1,1 +1,0 @@
-﻿[James K. A. Smith - Wikipedia](https://en.wikipedia.org/wiki/James_K._A._Smith)

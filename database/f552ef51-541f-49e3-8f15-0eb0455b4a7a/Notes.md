@@ -1,1 +1,0 @@
-﻿[Bill Maher - Wikipedia](https://en.wikipedia.org/wiki/Bill_Maher)

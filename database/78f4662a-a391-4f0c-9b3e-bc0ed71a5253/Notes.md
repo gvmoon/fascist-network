@@ -1,1 +1,0 @@
-﻿[Robert Herring (businessman) - Wikipedia](https://en.wikipedia.org/wiki/Robert_Herring_(businessman))

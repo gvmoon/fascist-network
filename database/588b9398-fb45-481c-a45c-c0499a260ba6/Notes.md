@@ -1,1 +1,0 @@
-﻿[David Ignatius - Wikipedia](https://en.wikipedia.org/wiki/David_Ignatius)

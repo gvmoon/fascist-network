@@ -1,1 +1,0 @@
-﻿[Frank Keating - Wikipedia](https://en.wikipedia.org/wiki/Frank_Keating)

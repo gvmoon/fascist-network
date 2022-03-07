@@ -1,1 +1,0 @@
-﻿[Woodrow M. Kroll - Wikipedia](https://en.wikipedia.org/wiki/Woodrow_M._Kroll)

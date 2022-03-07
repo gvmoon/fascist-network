@@ -1,0 +1,1 @@
+﻿[Magnitsky Act - Wikipedia](https://en.wikipedia.org/wiki/Magnitsky_Act)

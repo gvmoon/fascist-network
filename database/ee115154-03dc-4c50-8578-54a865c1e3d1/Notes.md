@@ -1,1 +1,0 @@
-﻿[Church of God in Christ - Wikipedia](https://en.wikipedia.org/wiki/Church_of_God_in_Christ)

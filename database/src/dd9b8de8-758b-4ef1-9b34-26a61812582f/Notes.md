@@ -1,0 +1,1 @@
+﻿[Vassar College - Wikipedia](https://en.wikipedia.org/wiki/Vassar_College)

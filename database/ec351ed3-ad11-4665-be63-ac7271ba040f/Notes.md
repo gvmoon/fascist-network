@@ -1,1 +1,0 @@
-﻿[Vichy France - Wikipedia](https://en.wikipedia.org/wiki/Vichy_France)

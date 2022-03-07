@@ -1,7 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Orson_Hyde
-
-
-|Born:|January 8, 1805|
-|Died:|November 28, 1878 (aged 73)|
-|Positions:|[President of the Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/President_of_the_Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "President of the Quorum of the Twelve Apostles (LDS Church)"), December 27, 1847 – April 10, 1875{nl}[Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "Quorum of the Twelve Apostles (LDS Church)"), June 27, 1839 – November 28, 1878{nl}[Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve#Members_of_the_Quorum,_prior_to_1844 "Quorum of the Twelve"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), February 15, 1835 – May 4, 1839{nl}[LDS Church](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), February 15, 1835 – November 28, 1878|
-|Notes:|Was removed from{nl}the Quorum due to apostasy May 4, 1839, but readmitted June 27, 1839. {nl}As a result, was given reduced seniority on April 10, 1875.|

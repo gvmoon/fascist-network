@@ -1,1 +1,0 @@
-﻿[Lucky Luciano - Wikipedia](https://en.wikipedia.org/wiki/Lucky_Luciano)

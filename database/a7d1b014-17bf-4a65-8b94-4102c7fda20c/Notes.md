@@ -1,1 +1,0 @@
-﻿[Myrtle Fillmore - Wikipedia](https://en.wikipedia.org/wiki/Myrtle_Fillmore)

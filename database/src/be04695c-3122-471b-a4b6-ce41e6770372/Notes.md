@@ -1,0 +1,1 @@
+﻿[Howard Phillips (activist) - Wikipedia](https://en.wikipedia.org/wiki/Howard_Phillips_(activist))

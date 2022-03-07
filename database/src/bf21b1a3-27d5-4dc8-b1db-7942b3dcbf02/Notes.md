@@ -1,0 +1,1 @@
+﻿[Bill & Melinda Gates Foundation - Wikipedia](https://en.wikipedia.org/wiki/Bill_%26_Melinda_Gates_Foundation)

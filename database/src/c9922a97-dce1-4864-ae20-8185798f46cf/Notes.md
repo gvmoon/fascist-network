@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/John_Quincy_Adams

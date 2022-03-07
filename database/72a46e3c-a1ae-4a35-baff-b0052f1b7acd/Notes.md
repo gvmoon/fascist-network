@@ -1,1 +1,0 @@
-﻿[Christie's - Wikipedia](https://en.wikipedia.org/wiki/Christie%27s)

@@ -1,1 +1,0 @@
-﻿[Andy Biggs - Wikipedia](https://en.wikipedia.org/wiki/Andy_Biggs)

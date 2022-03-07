@@ -1,1 +1,0 @@
-﻿[Edward P. Tivnan - Wikipedia](https://en.wikipedia.org/wiki/Edward_P._Tivnan)

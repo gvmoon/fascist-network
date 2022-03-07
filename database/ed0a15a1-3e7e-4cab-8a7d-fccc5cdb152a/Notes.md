@@ -1,1 +1,0 @@
-﻿[Pete Sessions - Wikipedia](https://en.wikipedia.org/wiki/Pete_Sessions)

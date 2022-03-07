@@ -1,0 +1,1 @@
+﻿[Sovereign citizen movement - Wikipedia](https://en.wikipedia.org/wiki/Sovereign_citizen_movement)

@@ -1,1 +1,0 @@
-﻿[David P. Gardner - Wikipedia](https://en.wikipedia.org/wiki/David_P._Gardner)

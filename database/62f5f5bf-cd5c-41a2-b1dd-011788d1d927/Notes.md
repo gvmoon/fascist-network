@@ -1,1 +1,0 @@
-﻿[Voice of America - Wikipedia](https://en.wikipedia.org/wiki/Voice_of_America)

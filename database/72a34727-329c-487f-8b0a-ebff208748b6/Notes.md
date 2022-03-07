@@ -1,1 +1,0 @@
-﻿[Redemption movement - Wikipedia](https://en.wikipedia.org/wiki/Redemption_movement)

@@ -1,1 +1,0 @@
-﻿[Tom Harkin - Wikipedia](https://en.wikipedia.org/wiki/Tom_Harkin)

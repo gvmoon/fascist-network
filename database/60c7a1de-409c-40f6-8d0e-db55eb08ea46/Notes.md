@@ -1,1 +1,0 @@
-﻿[Donald L. Jackson - Wikipedia](https://en.wikipedia.org/wiki/Donald_L._Jackson)

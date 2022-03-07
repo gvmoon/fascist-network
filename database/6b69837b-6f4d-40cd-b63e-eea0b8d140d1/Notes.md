@@ -1,1 +1,0 @@
-﻿[J. S. P. Tatlock - Wikipedia](https://en.wikipedia.org/wiki/J._S._P._Tatlock)

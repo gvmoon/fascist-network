@@ -1,1 +1,0 @@
-﻿[Lacanianism - Wikipedia](https://en.wikipedia.org/wiki/Lacanianism)

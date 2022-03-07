@@ -1,1 +1,0 @@
-﻿[Franz Brentano - Wikipedia](https://en.wikipedia.org/wiki/Franz_Brentano)

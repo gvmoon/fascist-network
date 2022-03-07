@@ -1,1 +1,0 @@
-﻿[American Federation of Labor - Wikipedia](https://en.wikipedia.org/wiki/American_Federation_of_Labor)

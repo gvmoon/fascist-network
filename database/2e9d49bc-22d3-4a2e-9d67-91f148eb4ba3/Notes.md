@@ -1,1 +1,0 @@
-﻿[Carlos Gutierrez - Wikipedia](https://en.wikipedia.org/wiki/Carlos_Gutierrez)

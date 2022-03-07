@@ -1,1 +1,0 @@
-﻿[Aspen Strategy Group - Wikipedia](https://en.wikipedia.org/wiki/Aspen_Strategy_Group)

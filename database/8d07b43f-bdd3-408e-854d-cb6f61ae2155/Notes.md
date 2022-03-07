@@ -1,1 +1,0 @@
-﻿[George Tenet - Wikipedia](https://en.wikipedia.org/wiki/George_Tenet)

@@ -1,1 +1,0 @@
-﻿[Amrom Harry Katz - Wikipedia](https://en.wikipedia.org/wiki/Amrom_Harry_Katz)

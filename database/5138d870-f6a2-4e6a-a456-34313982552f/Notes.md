@@ -1,1 +1,0 @@
-﻿[Frankfurt School - Wikipedia](https://en.wikipedia.org/wiki/Frankfurt_School)

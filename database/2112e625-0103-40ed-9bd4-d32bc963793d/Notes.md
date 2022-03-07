@@ -1,1 +1,0 @@
-﻿[Presidency of George H. W. Bush - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_George_H._W._Bush)

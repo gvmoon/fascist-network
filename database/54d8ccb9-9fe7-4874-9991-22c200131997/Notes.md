@@ -1,1 +1,0 @@
-﻿[Russell Kirk - Wikipedia](https://en.wikipedia.org/wiki/Russell_Kirk)

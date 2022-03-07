@@ -1,1 +1,0 @@
-﻿[Paul Nathaniel Temple Jr. - Wikipedia](https://en.wikipedia.org/wiki/Paul_Nathaniel_Temple_Jr.)

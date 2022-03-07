@@ -1,1 +1,0 @@
-﻿[Dan Quayle - Wikipedia](https://en.wikipedia.org/wiki/Dan_Quayle)

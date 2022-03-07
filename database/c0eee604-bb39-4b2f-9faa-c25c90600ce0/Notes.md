@@ -1,1 +1,0 @@
-﻿[Erik Prince - Wikipedia](https://en.wikipedia.org/wiki/Erik_Prince)

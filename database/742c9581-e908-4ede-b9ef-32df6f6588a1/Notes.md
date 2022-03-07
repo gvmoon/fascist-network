@@ -1,1 +1,0 @@
-﻿[Unite the Right rally - Wikipedia](https://en.wikipedia.org/wiki/Unite_the_Right_rally)

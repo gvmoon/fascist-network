@@ -1,1 +1,0 @@
-﻿[Korean National Youth Association - Wikipedia](https://en.wikipedia.org/wiki/Korean_National_Youth_Association)

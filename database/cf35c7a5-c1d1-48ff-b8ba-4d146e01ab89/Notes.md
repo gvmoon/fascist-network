@@ -1,1 +1,0 @@
-﻿[Lou Henry Hoover - Wikipedia](https://en.wikipedia.org/wiki/Lou_Henry_Hoover)

@@ -1,1 +1,0 @@
-﻿[Scott McConnell - Wikipedia](https://en.wikipedia.org/wiki/Scott_McConnell)

@@ -1,1 +1,0 @@
-﻿[Sidney Edward Mezes - Wikipedia](https://en.wikipedia.org/wiki/Sidney_Edward_Mezes)

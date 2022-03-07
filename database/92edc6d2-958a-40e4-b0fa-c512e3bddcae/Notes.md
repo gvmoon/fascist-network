@@ -1,1 +1,0 @@
-﻿[USC Gould School of Law - Wikipedia](https://en.wikipedia.org/wiki/USC_Gould_School_of_Law)

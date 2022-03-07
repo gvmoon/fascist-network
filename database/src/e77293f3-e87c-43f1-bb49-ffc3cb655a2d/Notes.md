@@ -1,0 +1,1 @@
+﻿[John D. Rockefeller Jr. - Wikipedia](https://en.wikipedia.org/wiki/John_D._Rockefeller_Jr.)

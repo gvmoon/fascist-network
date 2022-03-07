@@ -1,1 +1,0 @@
-﻿[William Lamb (Confederate States Army officer) - Wikipedia](https://en.wikipedia.org/wiki/William_Lamb_(Confederate_States_Army_officer))

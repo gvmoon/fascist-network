@@ -1,1 +1,0 @@
-﻿[National Security Advisor (United States) - Wikipedia](https://en.wikipedia.org/wiki/National_Security_Advisor_(United_States))

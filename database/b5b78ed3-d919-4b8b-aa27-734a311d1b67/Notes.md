@@ -1,1 +1,0 @@
-﻿[National Defense University - Wikipedia](https://en.wikipedia.org/wiki/National_Defense_University)

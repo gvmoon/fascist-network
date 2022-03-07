@@ -1,1 +1,0 @@
-﻿[United States Special Operations Command - Wikipedia](https://en.wikipedia.org/wiki/United_States_Special_Operations_Command)

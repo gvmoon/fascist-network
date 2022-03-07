@@ -1,1 +1,0 @@
-﻿[Vedanta - Wikipedia](https://en.wikipedia.org/wiki/Vedanta)

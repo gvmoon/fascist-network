@@ -1,1 +1,0 @@
-﻿[Dick Cheney - Wikipedia](https://en.wikipedia.org/wiki/Dick_Cheney)

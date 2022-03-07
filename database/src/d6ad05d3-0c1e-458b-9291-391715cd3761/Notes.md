@@ -1,0 +1,6 @@
+﻿[David Whitmer - Wikipedia](https://en.wikipedia.org/wiki/David_Whitmer)
+
+
+|Born:|January 7, 1805|
+|Died:|January 25, 1888 (aged 83)|
+|Positions:|[President of the Church](https://en.wikipedia.org/wiki/President_of_the_Church "President of the Church"){nl}([Church of Christ—Whitmerites](https://en.wikipedia.org/wiki/Church_of_Christ_%28Whitmerite%29 "Church of Christ (Whitmerite)")), January 28, 1876 – January 25, 1888{nl}[President of the Church](https://en.wikipedia.org/wiki/President_of_the_Church "President of the Church"){nl}([Church of Christ—Whitmerites](https://en.wikipedia.org/wiki/Church_of_Christ_%28Whitmerite%29 "Church of Christ (Whitmerite)")), September 7, 1847^[29]^ – ca. 1848^[30]^{nl}[President High Council](https://en.wikipedia.org/wiki/Presiding_High_Council "Presiding High Council"), July 3, 1834 – January, 1838{nl}[President of Zion](https://en.wikipedia.org/wiki/Presiding_High_Council#Types_of_High_Councils "Presiding High Council"), July 7, 1834 – February 5, 1838{nl}[Latter Day Saint](https://en.wikipedia.org/wiki/Latter_Day_Saint "Latter Day Saint") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by [Joseph Smith](https://en.wikipedia.org/wiki/Joseph_Smith "Joseph Smith"), June 1829 – June, 1838^[31]^|

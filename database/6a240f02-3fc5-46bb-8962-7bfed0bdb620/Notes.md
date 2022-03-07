@@ -1,1 +1,0 @@
-﻿[National Security Agency - Wikipedia](https://en.wikipedia.org/wiki/National_Security_Agency)

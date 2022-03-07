@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/J._C._Ryle

@@ -1,0 +1,1 @@
+﻿[Hans-Hermann Hoppe - Wikipedia](https://en.wikipedia.org/wiki/Hans-Hermann_Hoppe)

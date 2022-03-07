@@ -1,1 +1,0 @@
-﻿[Trinity University (Texas) - Wikipedia](https://en.wikipedia.org/wiki/Trinity_University_(Texas))

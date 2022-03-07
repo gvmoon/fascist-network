@@ -1,1 +1,0 @@
-﻿[Traditionalist Catholicism - Wikipedia](https://en.wikipedia.org/wiki/Traditionalist_Catholicism)

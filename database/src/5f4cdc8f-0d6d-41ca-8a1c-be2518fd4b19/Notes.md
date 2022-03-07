@@ -1,0 +1,1 @@
+﻿[Royal Society of Edinburgh - Wikipedia](https://en.wikipedia.org/wiki/Royal_Society_of_Edinburgh)

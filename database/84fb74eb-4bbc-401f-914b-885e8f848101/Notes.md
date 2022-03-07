@@ -1,1 +1,0 @@
-﻿[American Israel Public Affairs Committee - Wikipedia](https://en.wikipedia.org/wiki/American_Israel_Public_Affairs_Committee)

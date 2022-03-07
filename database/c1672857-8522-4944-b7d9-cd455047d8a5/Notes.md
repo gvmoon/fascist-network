@@ -1,1 +1,0 @@
-﻿[Pat Roberts - Wikipedia](https://en.wikipedia.org/wiki/Pat_Roberts)

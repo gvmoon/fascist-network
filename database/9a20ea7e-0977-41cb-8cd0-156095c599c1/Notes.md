@@ -1,1 +1,0 @@
-﻿[Association for Research and Enlightenment - Wikipedia](https://en.wikipedia.org/wiki/Association_for_Research_and_Enlightenment)

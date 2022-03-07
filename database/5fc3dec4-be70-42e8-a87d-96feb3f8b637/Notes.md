@@ -1,1 +1,0 @@
-﻿[Frederick Stevens (American politician) - Wikipedia](https://en.wikipedia.org/wiki/Frederick_Stevens_(American_politician))

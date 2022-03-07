@@ -1,1 +1,0 @@
-﻿[Hobby Lobby - Wikipedia](https://en.wikipedia.org/wiki/Hobby_Lobby)

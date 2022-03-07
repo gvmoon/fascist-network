@@ -1,1 +1,0 @@
-﻿[Lionel Curtis - Wikipedia](https://en.wikipedia.org/wiki/Lionel_Curtis)

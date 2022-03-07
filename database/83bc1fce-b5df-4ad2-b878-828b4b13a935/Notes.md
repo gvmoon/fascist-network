@@ -1,1 +1,0 @@
-﻿[Gatestone Institute - Wikipedia](https://en.wikipedia.org/wiki/Gatestone_Institute)

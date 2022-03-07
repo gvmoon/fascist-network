@@ -1,1 +1,0 @@
-﻿[George W. Scranton - Wikipedia](https://en.wikipedia.org/wiki/George_W._Scranton)

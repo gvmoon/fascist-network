@@ -1,1 +1,0 @@
-﻿[Michael Allen (journalist) - Wikipedia](https://en.wikipedia.org/wiki/Michael_Allen_(journalist))

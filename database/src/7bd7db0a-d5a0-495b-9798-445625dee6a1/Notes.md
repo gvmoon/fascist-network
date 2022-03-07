@@ -1,0 +1,1 @@
+﻿[Elmer Thomas - Wikipedia](https://en.wikipedia.org/wiki/Elmer_Thomas)

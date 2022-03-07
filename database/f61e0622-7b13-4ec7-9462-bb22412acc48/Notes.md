@@ -1,1 +1,0 @@
-﻿[Pierre Turquet - Wikipedia](https://en.wikipedia.org/wiki/Pierre_Turquet)

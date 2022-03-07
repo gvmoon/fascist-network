@@ -1,1 +1,0 @@
-﻿[Jean-Claude Valla - Wikipedia](https://en.wikipedia.org/wiki/Jean-Claude_Valla)

@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/National_Guard_(United_States)

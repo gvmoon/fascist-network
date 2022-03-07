@@ -1,0 +1,1 @@
+﻿[Theodor W. Adorno - Wikipedia](https://en.wikipedia.org/wiki/Theodor_W._Adorno)

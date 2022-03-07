@@ -1,0 +1,1 @@
+﻿[Joy-Anna Duggar Forsyth - Wikipedia](https://en.wikipedia.org/wiki/Joy-Anna_Duggar_Forsyth)

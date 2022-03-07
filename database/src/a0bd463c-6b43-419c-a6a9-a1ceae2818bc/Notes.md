@@ -1,0 +1,1 @@
+﻿[People's Party Our Slovakia - Wikipedia](https://en.wikipedia.org/wiki/People%27s_Party_Our_Slovakia)

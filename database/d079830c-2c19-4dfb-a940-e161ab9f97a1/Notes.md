@@ -1,1 +1,0 @@
-﻿[RAND Corporation - Wikipedia](https://en.wikipedia.org/wiki/RAND_Corporation)

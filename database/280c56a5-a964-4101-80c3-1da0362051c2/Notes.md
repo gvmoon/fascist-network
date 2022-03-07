@@ -1,1 +1,0 @@
-﻿[Kennedy family - Wikipedia](https://en.wikipedia.org/wiki/Kennedy_family)

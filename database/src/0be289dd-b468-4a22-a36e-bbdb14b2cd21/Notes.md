@@ -1,0 +1,1 @@
+﻿[Scott Pruitt - Wikipedia](https://en.wikipedia.org/wiki/Scott_Pruitt)

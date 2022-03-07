@@ -1,1 +1,0 @@
-﻿[Charles A. Dyer - Wikipedia](https://en.wikipedia.org/wiki/Charles_A._Dyer)

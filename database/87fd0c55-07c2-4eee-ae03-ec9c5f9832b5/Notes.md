@@ -1,1 +1,0 @@
-﻿[Wendy Rogers (politician) - Wikipedia](https://en.wikipedia.org/wiki/Wendy_Rogers_(politician))

@@ -1,0 +1,1 @@
+﻿[Johann Wolfgang von Goethe - Wikipedia](https://en.wikipedia.org/wiki/Johann_Wolfgang_Goethe)

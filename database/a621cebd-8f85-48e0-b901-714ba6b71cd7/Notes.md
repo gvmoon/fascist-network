@@ -1,1 +1,0 @@
-﻿[Brooklyn College - Wikipedia](https://en.wikipedia.org/wiki/Brooklyn_College)

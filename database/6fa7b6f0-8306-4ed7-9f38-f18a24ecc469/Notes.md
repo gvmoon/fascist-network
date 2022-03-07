@@ -1,1 +1,0 @@
-﻿[Giorgio Locchi - Wikipedia](https://en.wikipedia.org/wiki/Giorgio_Locchi)

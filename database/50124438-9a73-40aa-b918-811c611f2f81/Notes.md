@@ -1,1 +1,0 @@
-﻿[Stephen H. Grimes - Wikipedia](https://en.wikipedia.org/wiki/Stephen_H._Grimes)

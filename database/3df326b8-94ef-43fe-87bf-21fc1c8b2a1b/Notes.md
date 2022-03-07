@@ -1,1 +1,0 @@
-﻿[Gilbert E. Patterson - Wikipedia](https://en.wikipedia.org/wiki/Gilbert_E._Patterson)

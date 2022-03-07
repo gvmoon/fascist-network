@@ -1,1 +1,0 @@
-﻿[Prescott Bush - Wikipedia](https://en.wikipedia.org/wiki/Prescott_Bush)

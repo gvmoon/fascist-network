@@ -1,1 +1,0 @@
-﻿[Stephen L. Johnson - Wikipedia](https://en.wikipedia.org/wiki/Stephen_L._Johnson)

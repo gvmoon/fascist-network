@@ -1,1 +1,0 @@
-﻿[Order of World Scouts - Wikipedia](https://en.wikipedia.org/wiki/Order_of_World_Scouts)

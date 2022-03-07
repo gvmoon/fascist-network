@@ -1,1 +1,0 @@
-﻿[Nancy Coover Andreasen - Wikipedia](https://en.wikipedia.org/wiki/Nancy_Coover_Andreasen)

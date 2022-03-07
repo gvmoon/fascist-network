@@ -1,1 +1,0 @@
-﻿[Clark Gable - Wikipedia](https://en.wikipedia.org/wiki/Clark_Gable)

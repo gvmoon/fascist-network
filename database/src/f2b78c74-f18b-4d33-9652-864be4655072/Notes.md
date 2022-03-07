@@ -1,0 +1,1 @@
+﻿[G. Scott Paterson - Wikipedia](https://en.wikipedia.org/wiki/G._Scott_Paterson)

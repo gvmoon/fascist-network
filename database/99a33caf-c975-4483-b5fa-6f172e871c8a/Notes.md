@@ -1,1 +1,0 @@
-﻿[John A. McCone - Wikipedia](https://en.wikipedia.org/wiki/John_A._McCone)

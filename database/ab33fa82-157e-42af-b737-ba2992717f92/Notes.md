@@ -1,1 +1,0 @@
-﻿[Konrad Kellen - Wikipedia](https://en.wikipedia.org/wiki/Konrad_Kellen)

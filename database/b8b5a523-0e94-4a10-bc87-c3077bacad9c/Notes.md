@@ -1,1 +1,0 @@
-﻿[American Philosophical Association - Wikipedia](https://en.wikipedia.org/wiki/American_Philosophical_Association)

@@ -1,0 +1,1 @@
+﻿[Bill Gothard - Wikipedia](https://en.wikipedia.org/wiki/Bill_Gothard)

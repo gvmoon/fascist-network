@@ -1,1 +1,0 @@
-﻿[Gestalt Practice - Wikipedia](https://en.wikipedia.org/wiki/Gestalt_Practice)

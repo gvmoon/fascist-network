@@ -1,1 +1,0 @@
-﻿[George Barger - Wikipedia](https://en.wikipedia.org/wiki/George_Barger)

@@ -1,1 +1,0 @@
-﻿[Calvin University - Wikipedia](https://en.wikipedia.org/wiki/Calvin_University)

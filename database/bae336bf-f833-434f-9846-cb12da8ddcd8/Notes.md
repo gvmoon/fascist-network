@@ -1,1 +1,0 @@
-﻿[Ivanka Trump - Wikipedia](https://en.wikipedia.org/wiki/Ivanka_Trump)

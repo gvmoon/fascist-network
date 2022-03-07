@@ -1,1 +1,0 @@
-﻿[Hughes Tool Company - Wikipedia](https://en.wikipedia.org/wiki/Hughes_Tool_Company)

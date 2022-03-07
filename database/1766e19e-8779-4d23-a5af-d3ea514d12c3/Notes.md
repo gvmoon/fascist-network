@@ -1,1 +1,0 @@
-﻿[Norwich University - Wikipedia](https://en.wikipedia.org/wiki/Norwich_University)

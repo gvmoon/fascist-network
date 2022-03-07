@@ -1,1 +1,0 @@
-﻿[America First Party (1943) - Wikipedia](https://en.wikipedia.org/wiki/America_First_Party_(1943))

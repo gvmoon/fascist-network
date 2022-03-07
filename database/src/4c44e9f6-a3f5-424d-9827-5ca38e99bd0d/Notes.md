@@ -1,0 +1,1 @@
+﻿[Johann Gottfried Herder - Wikipedia](https://en.wikipedia.org/wiki/Johann_Gottfried_Herder)

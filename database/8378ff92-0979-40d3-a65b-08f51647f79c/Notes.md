@@ -1,1 +1,0 @@
-﻿[Richard de Bures - Wikipedia](https://en.wikipedia.org/wiki/Richard_de_Bures)

@@ -1,1 +1,0 @@
-﻿[Penn View Bible Institute - Wikipedia](https://en.wikipedia.org/wiki/Penn_View_Bible_Institute)

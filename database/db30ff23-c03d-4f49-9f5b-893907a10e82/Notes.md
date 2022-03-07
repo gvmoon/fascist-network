@@ -1,1 +1,0 @@
-﻿[Geert Egberts Boer - Wikipedia](https://en.wikipedia.org/wiki/Geert_Egberts_Boer)

@@ -1,1 +1,0 @@
-﻿[Japan Center for International Exchange - Wikipedia](https://en.wikipedia.org/wiki/Japan_Center_for_International_Exchange)

@@ -1,1 +1,0 @@
-﻿[University of Göttingen - Wikipedia](https://en.wikipedia.org/wiki/University_of_G%C3%B6ttingen)

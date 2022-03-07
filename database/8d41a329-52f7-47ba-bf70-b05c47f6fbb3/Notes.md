@@ -1,1 +1,0 @@
-﻿[New Right - Wikipedia](https://en.wikipedia.org/wiki/New_Right)

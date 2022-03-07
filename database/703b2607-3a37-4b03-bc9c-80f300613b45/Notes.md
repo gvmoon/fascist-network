@@ -1,1 +1,0 @@
-﻿[Brendan Iribe - Wikipedia](https://en.wikipedia.org/wiki/Brendan_Iribe)

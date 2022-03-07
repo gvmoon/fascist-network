@@ -1,1 +1,0 @@
-﻿[Barry Goldwater - Wikipedia](https://en.wikipedia.org/wiki/Barry_Goldwater)

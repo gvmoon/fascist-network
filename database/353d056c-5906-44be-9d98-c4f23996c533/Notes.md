@@ -1,1 +1,0 @@
-﻿[John Wesley - Wikipedia](https://en.wikipedia.org/wiki/John_Wesley)

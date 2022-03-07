@@ -1,1 +1,0 @@
-﻿[Trinity Hall, Cambridge - Wikipedia](https://en.wikipedia.org/wiki/Trinity_Hall,_Cambridge)

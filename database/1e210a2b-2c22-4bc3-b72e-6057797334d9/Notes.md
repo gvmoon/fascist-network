@@ -1,1 +1,0 @@
-﻿[James_Brown_Scott](https://en.wikipedia.org/wiki/James_Brown_Scott)

@@ -1,1 +1,0 @@
-﻿[Simon Tian - Wikipedia](https://en.wikipedia.org/wiki/Simon_Tian)

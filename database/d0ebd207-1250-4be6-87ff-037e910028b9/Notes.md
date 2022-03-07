@@ -1,1 +1,0 @@
-﻿[Queen Victoria - Wikipedia](https://en.wikipedia.org/wiki/Queen_Victoria)

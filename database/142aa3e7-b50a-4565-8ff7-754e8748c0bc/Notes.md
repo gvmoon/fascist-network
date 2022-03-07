@@ -1,1 +1,0 @@
-﻿[Joseph M. McShane - Wikipedia](https://en.wikipedia.org/wiki/Joseph_M._McShane)

@@ -1,1 +1,0 @@
-﻿[David L. Hoggan - Wikipedia](https://en.wikipedia.org/wiki/David_L._Hoggan)

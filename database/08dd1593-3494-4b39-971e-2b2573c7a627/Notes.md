@@ -1,1 +1,0 @@
-﻿[American Opportunity - Wikipedia](https://en.wikipedia.org/wiki/American_Opportunity)

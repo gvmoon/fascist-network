@@ -1,1 +1,0 @@
-﻿[J. Ramsey Michaels - Wikipedia](https://en.wikipedia.org/wiki/J._Ramsey_Michaels)

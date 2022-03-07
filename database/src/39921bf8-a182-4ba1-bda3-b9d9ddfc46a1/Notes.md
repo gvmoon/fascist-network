@@ -1,0 +1,1 @@
+﻿[Optacon - Wikipedia](https://en.wikipedia.org/wiki/Optacon)

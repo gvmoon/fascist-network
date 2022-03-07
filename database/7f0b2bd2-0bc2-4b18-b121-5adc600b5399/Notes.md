@@ -1,1 +1,0 @@
-﻿[Vice Chair of the Federal Reserve - Wikipedia](https://en.wikipedia.org/wiki/Vice_Chair_of_the_Federal_Reserve)

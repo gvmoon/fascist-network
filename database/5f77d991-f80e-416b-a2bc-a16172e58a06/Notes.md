@@ -1,1 +1,0 @@
-﻿[Family Research Council - Wikipedia](https://en.wikipedia.org/wiki/Family_Research_Council)

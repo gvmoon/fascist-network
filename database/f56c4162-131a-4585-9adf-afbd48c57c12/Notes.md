@@ -1,1 +1,0 @@
-﻿[John J. McCloy - Wikipedia](https://en.wikipedia.org/wiki/John_J._McCloy)

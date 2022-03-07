@@ -1,1 +1,0 @@
-﻿[Stanley Kurtz - Wikipedia](https://en.wikipedia.org/wiki/Stanley_Kurtz)

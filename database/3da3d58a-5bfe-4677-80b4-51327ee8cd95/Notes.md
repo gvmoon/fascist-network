@@ -1,1 +1,0 @@
-﻿[William H. Webster - Wikipedia](https://en.wikipedia.org/wiki/William_H._Webster)

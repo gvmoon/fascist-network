@@ -1,1 +1,0 @@
-﻿[Ivy Preparatory School League - Wikipedia](https://en.wikipedia.org/wiki/Ivy_Preparatory_School_League)

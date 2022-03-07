@@ -1,1 +1,0 @@
-﻿[Franklin Murphy (governor) - Wikipedia](https://en.wikipedia.org/wiki/Franklin_Murphy_(governor))

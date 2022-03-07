@@ -1,1 +1,0 @@
-﻿[CNN - Wikipedia](https://en.wikipedia.org/wiki/CNN)

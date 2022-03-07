@@ -1,1 +1,0 @@
-﻿[Christian Science - Wikipedia](https://en.wikipedia.org/wiki/Christian_Science)

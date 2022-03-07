@@ -1,0 +1,1 @@
+﻿[Columbus School of Law - Wikipedia](https://en.wikipedia.org/wiki/Columbus_School_of_Law)

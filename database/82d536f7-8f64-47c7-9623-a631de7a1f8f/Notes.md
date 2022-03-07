@@ -1,1 +1,0 @@
-﻿[Assassination of John F. Kennedy - Wikipedia](https://en.wikipedia.org/wiki/Assassination_of_John_F._Kennedy)

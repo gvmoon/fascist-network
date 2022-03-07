@@ -1,1 +1,0 @@
-﻿[Eugene Scalia - Wikipedia](https://en.wikipedia.org/wiki/Eugene_Scalia)

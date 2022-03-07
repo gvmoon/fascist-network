@@ -1,1 +1,0 @@
-﻿[Church of God (Cleveland, Tennessee) - Wikipedia](https://en.wikipedia.org/wiki/Church_of_God_(Cleveland))

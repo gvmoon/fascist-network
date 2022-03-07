@@ -1,1 +1,0 @@
-﻿[Charles Phelps Taft II - Wikipedia](https://en.wikipedia.org/wiki/Charles_Phelps_Taft_II)

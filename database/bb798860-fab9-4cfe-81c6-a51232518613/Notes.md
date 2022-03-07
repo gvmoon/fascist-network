@@ -1,1 +1,0 @@
-﻿[Deepak_Chopra](https://en.wikipedia.org/wiki/Deepak_Chopra)

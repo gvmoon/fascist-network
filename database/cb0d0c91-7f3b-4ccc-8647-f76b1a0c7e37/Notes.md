@@ -1,1 +1,0 @@
-﻿[Greg Gutfeld - Wikipedia](https://en.wikipedia.org/wiki/Greg_Gutfeld)

@@ -1,1 +1,0 @@
-﻿[Gestalt therapy - Wikipedia](https://en.wikipedia.org/wiki/Gestalt_therapy)

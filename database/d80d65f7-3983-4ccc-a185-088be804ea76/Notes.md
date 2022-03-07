@@ -1,1 +1,0 @@
-﻿[New American Library - Wikipedia](https://en.wikipedia.org/wiki/New_American_Library)

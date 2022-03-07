@@ -1,1 +1,0 @@
-﻿[David Truman - Wikipedia](https://en.wikipedia.org/wiki/David_Truman)

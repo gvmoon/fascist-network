@@ -1,1 +1,0 @@
-﻿[Social Action - Wikipedia](https://en.wikipedia.org/wiki/Social_Action)

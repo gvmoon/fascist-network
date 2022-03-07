@@ -1,1 +1,0 @@
-﻿[Friedrich Wilhelm Joseph Schelling - Wikipedia](https://en.wikipedia.org/wiki/Friedrich_Wilhelm_Joseph_Schelling)

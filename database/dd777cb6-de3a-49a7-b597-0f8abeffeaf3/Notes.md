@@ -1,1 +1,0 @@
-﻿[Mickey Cohen - Wikipedia](https://en.wikipedia.org/wiki/Mickey_Cohen)

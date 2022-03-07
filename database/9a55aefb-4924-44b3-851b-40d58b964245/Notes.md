@@ -1,1 +1,0 @@
-﻿[Pi Kappa Alpha - Wikipedia](https://en.wikipedia.org/wiki/Pi_Kappa_Alpha)

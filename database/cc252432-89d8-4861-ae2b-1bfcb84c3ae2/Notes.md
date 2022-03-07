@@ -1,1 +1,0 @@
-﻿[Michel-Louis Guérard des Lauriers - Wikipedia](https://en.wikipedia.org/wiki/Michel-Louis_Gu%C3%A9rard_des_Lauriers)

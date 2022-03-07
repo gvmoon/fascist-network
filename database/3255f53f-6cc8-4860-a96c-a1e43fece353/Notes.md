@@ -1,1 +1,0 @@
-﻿[Spencer Truman Olin - Wikipedia](https://en.wikipedia.org/wiki/Spencer_Truman_Olin)

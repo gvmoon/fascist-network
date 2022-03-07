@@ -1,0 +1,1 @@
+﻿[Anders Wejryd - Wikipedia](https://en.wikipedia.org/wiki/Anders_Wejryd)

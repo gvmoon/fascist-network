@@ -1,1 +1,0 @@
-﻿[Carl Hayden - Wikipedia](https://en.wikipedia.org/wiki/Carl_Hayden)

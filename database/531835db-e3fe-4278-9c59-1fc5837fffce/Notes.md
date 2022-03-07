@@ -1,1 +1,0 @@
-﻿[Allyn Abbott Young - Wikipedia](https://en.wikipedia.org/wiki/Allyn_Abbott_Young)

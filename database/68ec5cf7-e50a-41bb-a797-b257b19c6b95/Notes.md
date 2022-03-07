@@ -1,1 +1,0 @@
-﻿[Strom Thurmond - Wikipedia](https://en.wikipedia.org/wiki/Strom_Thurmond)

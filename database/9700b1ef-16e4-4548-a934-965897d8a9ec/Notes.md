@@ -1,1 +1,0 @@
-﻿[Gnosticism - Wikipedia](https://en.wikipedia.org/wiki/Gnosticism)

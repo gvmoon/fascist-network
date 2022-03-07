@@ -1,1 +1,0 @@
-﻿[Rebekah Mercer - Wikipedia](https://en.wikipedia.org/wiki/Rebekah_Mercer)

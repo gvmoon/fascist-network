@@ -1,1 +1,0 @@
-﻿[Michèle Flournoy - Wikipedia](https://en.wikipedia.org/wiki/Mich%C3%A8le_Flournoy)

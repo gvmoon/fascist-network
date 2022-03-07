@@ -1,1 +1,0 @@
-﻿[Henry H. Arnold - Wikipedia](https://en.wikipedia.org/wiki/Henry_H._Arnold)

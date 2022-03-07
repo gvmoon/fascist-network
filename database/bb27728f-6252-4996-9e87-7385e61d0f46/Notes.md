@@ -1,1 +1,0 @@
-﻿[Esther Brimmer - Wikipedia](https://en.wikipedia.org/wiki/Esther_Brimmer)

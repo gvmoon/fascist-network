@@ -1,0 +1,1 @@
+﻿[Jimmy Dore - Wikipedia](https://en.wikipedia.org/wiki/Jimmy_Dore)

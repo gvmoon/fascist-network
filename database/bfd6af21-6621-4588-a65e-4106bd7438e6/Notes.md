@@ -1,1 +1,0 @@
-﻿[William Colby - Wikipedia](https://en.wikipedia.org/wiki/William_Colby)

@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Abercrombie_%26_Fitch

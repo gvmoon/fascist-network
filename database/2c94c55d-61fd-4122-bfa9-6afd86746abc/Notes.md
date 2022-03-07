@@ -1,1 +1,0 @@
-﻿[Edwin Warfield - Wikipedia](https://en.wikipedia.org/wiki/Edwin_Warfield)

@@ -1,1 +1,0 @@
-﻿[David M. Kennedy - Wikipedia](https://en.wikipedia.org/wiki/David_M._Kennedy)

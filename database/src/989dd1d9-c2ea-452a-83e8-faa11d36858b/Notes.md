@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Royal_Swedish_Academy_of_Sciences

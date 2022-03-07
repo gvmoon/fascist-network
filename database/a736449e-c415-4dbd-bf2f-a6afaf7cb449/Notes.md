@@ -1,1 +1,0 @@
-﻿[Twelver Shi’ism - Wikipedia](https://en.wikipedia.org/wiki/Twelver_Shi%E2%80%99ism)

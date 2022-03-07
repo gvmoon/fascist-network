@@ -1,1 +1,0 @@
-﻿[Sharon Statement - Wikipedia](https://en.wikipedia.org/wiki/Sharon_Statement)

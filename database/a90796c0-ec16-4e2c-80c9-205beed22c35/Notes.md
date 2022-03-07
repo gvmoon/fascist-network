@@ -1,1 +1,0 @@
-﻿[Adolf Stoecker - Wikipedia](https://en.wikipedia.org/wiki/Adolf_Stoecker)

@@ -1,1 +1,0 @@
-﻿[Armin Mohler - Wikipedia](https://en.wikipedia.org/wiki/Armin_Mohler)

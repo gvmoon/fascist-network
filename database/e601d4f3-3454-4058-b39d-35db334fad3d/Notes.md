@@ -1,1 +1,0 @@
-﻿[Barbara Franklin - Wikipedia](https://en.wikipedia.org/wiki/Barbara_Franklin)

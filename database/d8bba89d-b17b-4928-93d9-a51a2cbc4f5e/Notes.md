@@ -1,1 +1,0 @@
-﻿[Christian Broadcasting Network - Wikipedia](https://en.wikipedia.org/wiki/Christian_Broadcasting_Network)

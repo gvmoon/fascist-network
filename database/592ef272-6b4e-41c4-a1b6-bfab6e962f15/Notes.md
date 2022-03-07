@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Hill%2BKnowlton_Strategies#History

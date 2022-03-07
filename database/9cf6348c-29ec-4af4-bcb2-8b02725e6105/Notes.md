@@ -1,1 +1,0 @@
-﻿[Vice (magazine) - Wikipedia](https://en.wikipedia.org/wiki/Vice_(magazine))

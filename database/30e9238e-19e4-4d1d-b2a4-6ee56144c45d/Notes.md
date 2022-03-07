@@ -1,1 +1,0 @@
-﻿[Adolf Hitler - Wikipedia](https://en.wikipedia.org/wiki/Adolf_Hitler)

@@ -1,1 +1,0 @@
-﻿[Neville Symington - Wikipedia](https://en.wikipedia.org/wiki/Neville_Symington)

@@ -1,0 +1,1 @@
+﻿[Caroline Daniel - Wikipedia](https://en.wikipedia.org/wiki/Caroline_Daniel)

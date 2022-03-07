@@ -1,1 +1,0 @@
-﻿[Paul Nitze - Wikipedia](https://en.wikipedia.org/wiki/Paul_Nitze)

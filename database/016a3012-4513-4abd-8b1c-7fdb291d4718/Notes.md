@@ -1,1 +1,0 @@
-﻿[Libertarian socialism - Wikipedia](https://en.wikipedia.org/wiki/Libertarian_socialism)

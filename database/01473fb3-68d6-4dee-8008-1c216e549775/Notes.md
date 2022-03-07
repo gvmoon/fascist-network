@@ -1,1 +1,0 @@
-﻿[Alpha Delta Phi - Wikipedia](https://en.wikipedia.org/wiki/Alpha_Delta_Phi)

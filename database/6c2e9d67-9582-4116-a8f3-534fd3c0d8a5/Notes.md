@@ -1,1 +1,0 @@
-﻿[Caspar Schwenckfeld - Wikipedia](https://en.wikipedia.org/wiki/Caspar_Schwenckfeld)

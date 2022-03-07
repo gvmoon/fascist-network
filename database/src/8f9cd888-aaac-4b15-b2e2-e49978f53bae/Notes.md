@@ -1,0 +1,1 @@
+﻿[Philip J. Quigley - Wikipedia](https://en.wikipedia.org/wiki/Philip_J._Quigley)

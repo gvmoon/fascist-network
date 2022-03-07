@@ -1,1 +1,0 @@
-﻿[Alliance of the Orders of Saint John of Jerusalem - Wikipedia](https://en.wikipedia.org/wiki/Alliance_of_the_Orders_of_Saint_John_of_Jerusalem)

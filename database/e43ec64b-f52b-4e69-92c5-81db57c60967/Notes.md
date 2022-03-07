@@ -1,1 +1,0 @@
-﻿[Blessed Gerard - Wikipedia](https://en.wikipedia.org/wiki/Blessed_Gerard)

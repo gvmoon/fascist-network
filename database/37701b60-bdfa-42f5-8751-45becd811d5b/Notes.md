@@ -1,1 +1,0 @@
-﻿[Francis Biddle - Wikipedia](https://en.wikipedia.org/wiki/Francis_Biddle)

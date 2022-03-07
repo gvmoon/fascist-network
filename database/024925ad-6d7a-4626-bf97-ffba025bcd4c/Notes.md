@@ -1,1 +1,0 @@
-﻿[Peter Hurkos - Wikipedia](https://en.wikipedia.org/wiki/Peter_Hurkos)

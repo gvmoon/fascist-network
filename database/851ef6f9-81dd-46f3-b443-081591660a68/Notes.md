@@ -1,1 +1,0 @@
-﻿[American Security Council Foundation - Wikipedia](https://en.wikipedia.org/wiki/American_Security_Council_Foundation)

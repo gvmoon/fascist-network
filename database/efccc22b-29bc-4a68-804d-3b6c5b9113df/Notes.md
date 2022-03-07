@@ -1,1 +1,0 @@
-﻿[NASA - Wikipedia](https://en.wikipedia.org/wiki/NASA)

@@ -1,1 +1,0 @@
-﻿[First Earth Battalion - Wikipedia](https://en.wikipedia.org/wiki/First_Earth_Battalion)

@@ -1,1 +1,0 @@
-﻿[Sons of the American Revolution - Wikipedia](https://en.wikipedia.org/wiki/Sons_of_the_American_Revolution)

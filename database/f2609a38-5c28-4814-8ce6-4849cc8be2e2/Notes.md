@@ -1,1 +1,0 @@
-﻿[Fusionism - Wikipedia](https://en.wikipedia.org/wiki/Fusionism)

@@ -1,1 +1,0 @@
-﻿[Darleane C. Hoffman - Wikipedia](https://en.wikipedia.org/wiki/Darleane_C._Hoffman)

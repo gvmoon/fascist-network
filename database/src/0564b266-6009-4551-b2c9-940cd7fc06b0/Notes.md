@@ -1,0 +1,1 @@
+﻿[United States Military Academy - Wikipedia](https://en.wikipedia.org/wiki/United_States_Military_Academy)

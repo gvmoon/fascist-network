@@ -1,1 +1,0 @@
-﻿[Grey Wolves (organization) - Wikipedia](https://en.wikipedia.org/wiki/Grey_Wolves_(organization))

@@ -1,1 +1,0 @@
-﻿[Jay Lovestone - Wikipedia](https://en.wikipedia.org/wiki/Jay_Lovestone)

@@ -1,1 +1,0 @@
-﻿[Paul McCracken (economist) - Wikipedia](https://en.wikipedia.org/wiki/Paul_McCracken_(economist))

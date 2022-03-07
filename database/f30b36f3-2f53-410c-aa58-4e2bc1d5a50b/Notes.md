@@ -1,1 +1,0 @@
-﻿[Vermont National Guard - Wikipedia](https://en.wikipedia.org/wiki/Vermont_National_Guard)

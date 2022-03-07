@@ -1,0 +1,1 @@
+﻿[Thorstein Veblen - Wikipedia](https://en.wikipedia.org/wiki/Thorstein_Veblen)

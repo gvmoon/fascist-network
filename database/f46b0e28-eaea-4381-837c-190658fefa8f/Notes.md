@@ -1,1 +1,0 @@
-﻿[René Joyeuse - Wikipedia](https://en.wikipedia.org/wiki/Ren%C3%A9_Joyeuse)

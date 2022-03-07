@@ -1,1 +1,0 @@
-﻿[List of United States political families - Wikipedia](https://en.wikipedia.org/wiki/List_of_United_States_political_families)

@@ -1,1 +1,0 @@
-﻿[Maria Butina - Wikipedia](https://en.wikipedia.org/wiki/Maria_Butina)

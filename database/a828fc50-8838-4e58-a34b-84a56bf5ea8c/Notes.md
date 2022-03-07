@@ -1,1 +1,0 @@
-﻿[Federalist Party - Wikipedia](https://en.wikipedia.org/wiki/Federalist_Party)

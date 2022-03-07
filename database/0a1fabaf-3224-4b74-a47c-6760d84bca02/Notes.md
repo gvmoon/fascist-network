@@ -1,1 +1,0 @@
-﻿[South and City College Birmingham - Wikipedia](https://en.wikipedia.org/wiki/South_and_City_College_Birmingham)

@@ -1,1 +1,0 @@
-﻿[Axel Springer SE - Wikipedia](https://en.wikipedia.org/wiki/Axel_Springer_SE)

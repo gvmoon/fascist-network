@@ -1,0 +1,3 @@
+﻿https://en.wikipedia.org/wiki/David_King_Udall
+
+**David King Udall, Sr.** (September 7, 1851 – February 18, 1938) was a representative to the [Arizona Territorial Legislature](https://en.wikipedia.org/wiki/Arizona_Territory "Arizona Territory") and the founder of the [Udall](https://en.wikipedia.org/wiki/Udall_family "Udall family") [political family](https://en.wikipedia.org/wiki/Political_family "Political family").^[1]^^[2]^

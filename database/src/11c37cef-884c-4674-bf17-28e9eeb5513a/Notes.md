@@ -1,0 +1,1 @@
+﻿[Guillaume Faye - Wikipedia](https://en.wikipedia.org/wiki/Guillaume_Faye)

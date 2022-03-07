@@ -1,1 +1,0 @@
-﻿[The American Conservative - Wikipedia](https://en.wikipedia.org/wiki/The_American_Conservative)

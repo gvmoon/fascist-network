@@ -1,1 +1,0 @@
-﻿[Gilbert N. Lewis - Wikipedia](https://en.wikipedia.org/wiki/Gilbert_N._Lewis)

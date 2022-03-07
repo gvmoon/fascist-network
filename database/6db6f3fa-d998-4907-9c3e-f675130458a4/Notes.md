@@ -1,1 +1,0 @@
-﻿[Ed Schafer - Wikipedia](https://en.wikipedia.org/wiki/Ed_Schafer)

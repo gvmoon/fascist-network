@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/American_Catholic_Philosophical_Association

@@ -1,1 +1,0 @@
-﻿[Defense Language Institute - Wikipedia](https://en.wikipedia.org/wiki/Defense_Language_Institute)

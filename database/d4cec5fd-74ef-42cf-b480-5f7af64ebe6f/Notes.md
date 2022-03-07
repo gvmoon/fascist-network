@@ -1,1 +1,0 @@
-﻿[Reihan Salam - Wikipedia](https://en.wikipedia.org/wiki/Reihan_Salam)

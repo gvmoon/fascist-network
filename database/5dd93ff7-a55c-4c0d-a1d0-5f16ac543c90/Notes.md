@@ -1,1 +1,0 @@
-﻿[Christian Leaders Institute - Wikipedia](https://en.wikipedia.org/wiki/Christian_Leaders_Institute)

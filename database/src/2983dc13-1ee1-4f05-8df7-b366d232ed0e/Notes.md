@@ -1,0 +1,1 @@
+﻿[James Kennedy (historian) - Wikipedia](https://en.wikipedia.org/wiki/James_Kennedy_(historian))

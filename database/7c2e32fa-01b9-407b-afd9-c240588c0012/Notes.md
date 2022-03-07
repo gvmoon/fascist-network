@@ -1,1 +1,0 @@
-﻿[Stephen Barr - Wikipedia](https://en.wikipedia.org/wiki/Stephen_Barr)

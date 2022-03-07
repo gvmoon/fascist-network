@@ -1,1 +1,0 @@
-﻿[Andrew Yang - Wikipedia](https://en.wikipedia.org/wiki/Andrew_Yang)

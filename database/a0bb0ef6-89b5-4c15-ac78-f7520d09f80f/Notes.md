@@ -1,1 +1,0 @@
-﻿[Hjalmar Schacht - Wikipedia](https://en.wikipedia.org/wiki/Hjalmar_Schacht)

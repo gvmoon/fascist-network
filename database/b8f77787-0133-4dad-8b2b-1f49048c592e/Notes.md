@@ -1,1 +1,0 @@
-﻿[Linus Pauling - Wikipedia](https://en.wikipedia.org/wiki/Linus_Pauling)

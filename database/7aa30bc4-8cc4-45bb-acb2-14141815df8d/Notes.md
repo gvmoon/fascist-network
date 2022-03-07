@@ -1,1 +1,0 @@
-﻿[Founders Fund - Wikipedia](https://en.wikipedia.org/wiki/Founders_Fund)

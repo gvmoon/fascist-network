@@ -1,1 +1,0 @@
-﻿[Cuban Revolutionary Council - Wikipedia](https://en.wikipedia.org/wiki/Cuban_Revolutionary_Council)

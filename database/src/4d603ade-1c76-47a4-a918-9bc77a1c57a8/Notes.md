@@ -1,0 +1,1 @@
+﻿[Bertrand de Blanchefort - Wikipedia](https://en.wikipedia.org/wiki/Bertrand_de_Blanchefort)

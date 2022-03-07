@@ -1,1 +1,0 @@
-﻿[University of North Carolina at Chapel Hill - Wikipedia](https://en.wikipedia.org/wiki/University_of_North_Carolina_at_Chapel_Hill)

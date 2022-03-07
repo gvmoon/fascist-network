@@ -1,1 +1,0 @@
-﻿[2021 United States Capitol attack - Wikipedia](https://en.wikipedia.org/wiki/2021_United_States_Capitol_attack)

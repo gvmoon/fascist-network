@@ -1,1 +1,0 @@
-﻿[John Negroponte - Wikipedia](https://en.wikipedia.org/wiki/John_Negroponte)

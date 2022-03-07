@@ -1,1 +1,0 @@
-﻿[Federal Bureau of Investigation - Wikipedia](https://en.wikipedia.org/wiki/Federal_Bureau_of_Investigation)

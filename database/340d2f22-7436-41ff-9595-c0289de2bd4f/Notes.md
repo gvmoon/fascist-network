@@ -1,1 +1,0 @@
-﻿[Age of Enlightenment - Wikipedia](https://en.wikipedia.org/wiki/Age_of_Enlightenment)

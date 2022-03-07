@@ -1,0 +1,1 @@
+﻿[Westinghouse Electric Corporation - Wikipedia](https://en.wikipedia.org/wiki/Westinghouse_Electric_Corporation)

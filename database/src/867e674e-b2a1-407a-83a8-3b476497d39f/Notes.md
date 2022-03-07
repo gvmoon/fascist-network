@@ -1,0 +1,1 @@
+﻿[George Dantzig - Wikipedia](https://en.wikipedia.org/wiki/George_Dantzig)

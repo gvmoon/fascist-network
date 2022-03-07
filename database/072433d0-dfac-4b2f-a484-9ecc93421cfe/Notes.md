@@ -1,1 +1,0 @@
-﻿[Norman Shapiro - Wikipedia](https://en.wikipedia.org/wiki/Norman_Shapiro)

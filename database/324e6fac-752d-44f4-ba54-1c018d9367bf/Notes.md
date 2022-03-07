@@ -1,1 +1,0 @@
-﻿[Benny Hinn - Wikipedia](https://en.wikipedia.org/wiki/Benny_Hinn)

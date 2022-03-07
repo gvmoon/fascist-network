@@ -1,1 +1,0 @@
-﻿[George Weigel - Wikipedia](https://en.wikipedia.org/wiki/George_Weigel)

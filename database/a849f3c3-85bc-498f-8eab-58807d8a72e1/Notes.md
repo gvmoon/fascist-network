@@ -1,1 +1,0 @@
-﻿[Cryptic Masonry - Wikipedia](https://en.wikipedia.org/wiki/Cryptic_Masonry)

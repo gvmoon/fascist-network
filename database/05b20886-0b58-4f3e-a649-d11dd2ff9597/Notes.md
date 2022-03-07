@@ -1,1 +1,0 @@
-﻿[Artur Axmann - Wikipedia](https://en.wikipedia.org/wiki/Artur_Axmann)

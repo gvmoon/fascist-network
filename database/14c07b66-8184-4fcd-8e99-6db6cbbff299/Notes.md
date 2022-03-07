@@ -1,1 +1,0 @@
-﻿[Ohio University - Wikipedia](https://en.wikipedia.org/wiki/Ohio_University)

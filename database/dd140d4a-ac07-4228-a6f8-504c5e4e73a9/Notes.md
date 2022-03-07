@@ -1,1 +1,0 @@
-﻿[Radical Reformation - Wikipedia](https://en.wikipedia.org/wiki/Radical_Reformation)

@@ -1,0 +1,1 @@
+﻿[Alfred Rosenberg - Wikipedia](https://en.wikipedia.org/wiki/Alfred_Rosenberg)

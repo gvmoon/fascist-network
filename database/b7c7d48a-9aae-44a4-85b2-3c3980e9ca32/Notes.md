@@ -1,1 +1,0 @@
-﻿[W. B. Yeats - Wikipedia](https://en.wikipedia.org/wiki/W._B._Yeats)

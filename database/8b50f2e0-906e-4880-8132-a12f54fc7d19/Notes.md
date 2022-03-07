@@ -1,1 +1,0 @@
-﻿[Hugh Hefner - Wikipedia](https://en.wikipedia.org/wiki/Hugh_Hefner)

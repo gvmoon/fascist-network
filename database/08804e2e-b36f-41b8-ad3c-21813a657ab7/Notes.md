@@ -1,1 +1,0 @@
-﻿[Chiang Kai-shek - Wikipedia](https://en.wikipedia.org/wiki/Chiang_Kai-shek)

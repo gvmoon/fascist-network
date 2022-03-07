@@ -1,1 +1,0 @@
-﻿[Frederick Kagan - Wikipedia](https://en.wikipedia.org/wiki/Frederick_Kagan)

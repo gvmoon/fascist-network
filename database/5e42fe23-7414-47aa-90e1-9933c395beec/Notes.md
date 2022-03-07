@@ -1,1 +1,0 @@
-﻿[Otto Fenichel - Wikipedia](https://en.wikipedia.org/wiki/Otto_Fenichel)

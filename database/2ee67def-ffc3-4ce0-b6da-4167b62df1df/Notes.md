@@ -1,1 +1,0 @@
-﻿[Burgess Owens - Wikipedia](https://en.wikipedia.org/wiki/Burgess_Owens)

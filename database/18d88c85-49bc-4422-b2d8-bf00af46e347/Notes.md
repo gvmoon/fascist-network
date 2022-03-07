@@ -1,1 +1,0 @@
-﻿[Think tank - Wikipedia](https://en.wikipedia.org/wiki/Think_tank)

@@ -1,1 +1,0 @@
-﻿[Geoffrey Malcolm Gathorne-Hardy - Wikipedia](https://en.wikipedia.org/wiki/Geoffrey_Malcolm_Gathorne-Hardy)

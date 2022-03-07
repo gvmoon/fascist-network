@@ -1,1 +1,0 @@
-﻿[Donald C. Bruce - Wikipedia](https://en.wikipedia.org/wiki/Donald_C._Bruce)

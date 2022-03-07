@@ -1,1 +1,0 @@
-﻿[Monasticism - Wikipedia](https://en.wikipedia.org/wiki/Monasticism)

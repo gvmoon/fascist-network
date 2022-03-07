@@ -1,1 +1,0 @@
-﻿[American Baptist Churches USA - Wikipedia](https://en.wikipedia.org/wiki/American_Baptist_Churches_USA)

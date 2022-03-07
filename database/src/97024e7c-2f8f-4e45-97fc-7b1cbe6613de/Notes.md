@@ -1,0 +1,1 @@
+﻿[Søren Kierkegaard - Wikipedia](https://en.wikipedia.org/wiki/S%C3%B8ren_Kierkegaard)

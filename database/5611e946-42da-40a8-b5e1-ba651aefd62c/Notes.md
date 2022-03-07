@@ -1,1 +1,0 @@
-﻿[Knights Templar (Freemasonry) - Wikipedia](https://en.wikipedia.org/wiki/Knights_Templar_(Freemasonry)#The_Degree_of_Knight_of_Malta_(Order_of_Malta))

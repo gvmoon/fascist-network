@@ -1,1 +1,0 @@
-﻿[Presidency of Ronald Reagan - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_Ronald_Reagan)

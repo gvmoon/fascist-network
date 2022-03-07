@@ -1,1 +1,0 @@
-﻿[Leninism - Wikipedia](https://en.wikipedia.org/wiki/Leninism)

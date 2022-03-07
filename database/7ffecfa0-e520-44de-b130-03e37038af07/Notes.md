@@ -1,1 +1,0 @@
-﻿[F. Dale Bruner - Wikipedia](https://en.wikipedia.org/wiki/F._Dale_Bruner)

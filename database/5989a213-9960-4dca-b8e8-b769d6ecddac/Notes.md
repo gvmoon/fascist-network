@@ -1,1 +1,0 @@
-﻿[Georgia Hussars - Wikipedia](https://en.wikipedia.org/wiki/Georgia_Hussars)

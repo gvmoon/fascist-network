@@ -1,1 +1,0 @@
-﻿[Isaac Hellmuth - Wikipedia](https://en.wikipedia.org/wiki/Isaac_Hellmuth)

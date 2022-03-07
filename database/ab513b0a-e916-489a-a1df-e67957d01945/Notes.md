@@ -1,1 +1,0 @@
-﻿[Royal Arch Masonry - Wikipedia](https://en.wikipedia.org/wiki/Royal_Arch_Masonry)

@@ -1,1 +1,0 @@
-﻿[Eugen von Böhm-Bawerk - Wikipedia](https://en.wikipedia.org/wiki/Eugen_von_B%C3%B6hm-Bawerk)

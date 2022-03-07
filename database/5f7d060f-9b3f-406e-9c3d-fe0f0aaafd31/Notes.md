@@ -1,1 +1,0 @@
-﻿[Organisation armée secrète - Wikipedia](https://en.wikipedia.org/wiki/Organisation_arm%C3%A9e_secr%C3%A8te)

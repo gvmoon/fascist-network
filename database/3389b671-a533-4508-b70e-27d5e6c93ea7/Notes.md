@@ -1,1 +1,0 @@
-﻿[Chris Cuomo - Wikipedia](https://en.wikipedia.org/wiki/Chris_Cuomo)

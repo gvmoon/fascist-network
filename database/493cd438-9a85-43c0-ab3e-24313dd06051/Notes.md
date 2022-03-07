@@ -1,1 +1,0 @@
-﻿[Nelson Bunker Hunt - Wikipedia](https://en.wikipedia.org/wiki/Nelson_Bunker_Hunt)

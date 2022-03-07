@@ -1,0 +1,1 @@
+﻿[Edward R. Dalglish - Wikipedia](https://en.wikipedia.org/wiki/Edward_R._Dalglish)

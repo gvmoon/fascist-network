@@ -1,1 +1,0 @@
-﻿[Elizabeth Clare Prophet - Wikipedia](https://en.wikipedia.org/wiki/Elizabeth_Clare_Prophet)

@@ -1,1 +1,0 @@
-﻿[Augustin Barruel - Wikipedia](https://en.wikipedia.org/wiki/Augustin_Barruel)

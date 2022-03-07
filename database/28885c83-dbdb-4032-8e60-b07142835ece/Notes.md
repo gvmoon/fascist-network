@@ -1,1 +1,0 @@
-﻿[Newt Gingrich - Wikipedia](https://en.wikipedia.org/wiki/Newt_Gingrich)

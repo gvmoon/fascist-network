@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/British_Red_Cross

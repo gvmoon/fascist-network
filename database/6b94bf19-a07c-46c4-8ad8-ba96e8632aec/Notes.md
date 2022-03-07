@@ -1,1 +1,0 @@
-﻿[Jean-Yves Le Gallou - Wikipedia](https://en.wikipedia.org/wiki/Jean-Yves_Le_Gallou)

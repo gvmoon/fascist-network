@@ -1,0 +1,1 @@
+﻿[Australia First Party - Wikipedia](https://en.wikipedia.org/wiki/Australia_First_Party)

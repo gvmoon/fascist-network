@@ -1,1 +1,0 @@
-﻿[Willis Ware - Wikipedia](https://en.wikipedia.org/wiki/Willis_Ware)

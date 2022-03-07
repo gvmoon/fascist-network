@@ -1,1 +1,0 @@
-﻿[Vietnam War - Wikipedia](https://en.wikipedia.org/wiki/Vietnam_War)

@@ -1,1 +1,0 @@
-﻿[Chantal Mouffe - Wikipedia](https://en.wikipedia.org/wiki/Chantal_Mouffe)

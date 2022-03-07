@@ -1,1 +1,0 @@
-﻿[Kenneth Copeland - Wikipedia](https://en.wikipedia.org/wiki/Kenneth_Copeland)

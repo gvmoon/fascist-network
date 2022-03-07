@@ -1,0 +1,1 @@
+﻿[Symon Budny - Wikipedia](https://en.wikipedia.org/wiki/Symon_Budny)

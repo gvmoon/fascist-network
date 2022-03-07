@@ -1,1 +1,0 @@
-﻿[William II of the Netherlands - Wikipedia](https://en.wikipedia.org/wiki/William_II_of_the_Netherlands)

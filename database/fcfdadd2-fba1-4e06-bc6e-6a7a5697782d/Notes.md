@@ -1,1 +1,0 @@
-﻿[Bureau of Alcohol, Tobacco, Firearms and Explosives - Wikipedia](https://en.wikipedia.org/wiki/Bureau_of_Alcohol,_Tobacco,_Firearms_and_Explosives)

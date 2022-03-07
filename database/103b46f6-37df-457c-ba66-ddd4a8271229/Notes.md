@@ -1,1 +1,0 @@
-﻿[Philip Danforth Armour - Wikipedia](https://en.wikipedia.org/wiki/Philip_Danforth_Armour)

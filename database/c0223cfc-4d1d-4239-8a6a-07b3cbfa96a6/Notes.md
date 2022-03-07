@@ -1,1 +1,0 @@
-﻿[National Presbyterian Church in Mexico - Wikipedia](https://en.wikipedia.org/wiki/National_Presbyterian_Church_in_Mexico)

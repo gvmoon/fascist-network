@@ -1,1 +1,0 @@
-﻿[Gulf War - Wikipedia](https://en.wikipedia.org/wiki/Gulf_War)

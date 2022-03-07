@@ -1,1 +1,0 @@
-﻿[Fausto Sozzini - Wikipedia](https://en.wikipedia.org/wiki/Fausto_Sozzini)

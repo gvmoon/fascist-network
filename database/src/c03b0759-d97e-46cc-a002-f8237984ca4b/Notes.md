@@ -1,0 +1,1 @@
+﻿[Hearst Communications - Wikipedia](https://en.wikipedia.org/wiki/Hearst_Communications)

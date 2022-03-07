@@ -1,1 +1,0 @@
-﻿[William Bell Riley - Wikipedia](https://en.wikipedia.org/wiki/William_Bell_Riley)

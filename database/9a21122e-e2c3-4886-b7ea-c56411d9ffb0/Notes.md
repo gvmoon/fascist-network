@@ -1,1 +1,0 @@
-﻿[Clare Boothe Luce - Wikipedia](https://en.wikipedia.org/wiki/Clare_Boothe_Luce)

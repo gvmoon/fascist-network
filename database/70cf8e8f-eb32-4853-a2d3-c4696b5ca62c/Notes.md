@@ -1,1 +1,0 @@
-﻿[Abbey Theatre - Wikipedia](https://en.wikipedia.org/wiki/Abbey_Theatre)

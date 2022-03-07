@@ -1,0 +1,1 @@
+﻿[Gordon–Conwell Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Gordon%E2%80%93Conwell_Theological_Seminary)

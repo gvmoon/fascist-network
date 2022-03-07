@@ -1,1 +1,0 @@
-﻿[National Front (Italy, 1997) - Wikipedia](https://en.wikipedia.org/wiki/National_Front_(Italy,_1997))

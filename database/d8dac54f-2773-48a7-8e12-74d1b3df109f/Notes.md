@@ -1,1 +1,0 @@
-﻿[Kappa Alpha Society - Wikipedia](https://en.wikipedia.org/wiki/Kappa_Alpha_Society)

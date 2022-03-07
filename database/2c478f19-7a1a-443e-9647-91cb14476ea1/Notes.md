@@ -1,1 +1,0 @@
-﻿[Zürich - Wikipedia](https://en.wikipedia.org/wiki/Z%C3%BCrich)

@@ -1,1 +1,0 @@
-﻿[University of Pittsburgh - Wikipedia](https://en.wikipedia.org/wiki/University_of_Pittsburgh)

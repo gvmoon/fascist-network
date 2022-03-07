@@ -1,1 +1,0 @@
-﻿[Broncho Billy Anderson - Wikipedia](https://en.wikipedia.org/wiki/Broncho_Billy_Anderson)

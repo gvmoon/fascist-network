@@ -1,1 +1,0 @@
-﻿[John Dewey - Wikipedia](https://en.wikipedia.org/wiki/John_Dewey)

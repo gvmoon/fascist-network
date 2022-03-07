@@ -1,0 +1,1 @@
+﻿[Henry Luce - Wikipedia](https://en.wikipedia.org/wiki/Henry_Luce)

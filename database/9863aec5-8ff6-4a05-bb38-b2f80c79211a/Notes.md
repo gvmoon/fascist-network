@@ -1,1 +1,0 @@
-﻿[Eric Allin Cornell - Wikipedia](https://en.wikipedia.org/wiki/Eric_Allin_Cornell)

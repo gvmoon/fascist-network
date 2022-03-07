@@ -1,1 +1,0 @@
-﻿[Amy Klobuchar - Wikipedia](https://en.wikipedia.org/wiki/Amy_Klobuchar)

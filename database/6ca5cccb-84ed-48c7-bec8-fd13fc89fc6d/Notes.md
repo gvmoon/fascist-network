@@ -1,1 +1,0 @@
-﻿[Brown University - Wikipedia](https://en.wikipedia.org/wiki/Brown_University)

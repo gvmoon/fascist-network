@@ -1,1 +1,0 @@
-﻿[United Patriots Front - Wikipedia](https://en.wikipedia.org/wiki/United_Patriots_Front)

@@ -1,1 +1,0 @@
-﻿[Leon Trotsky - Wikipedia](https://en.wikipedia.org/wiki/Leon_Trotsky)

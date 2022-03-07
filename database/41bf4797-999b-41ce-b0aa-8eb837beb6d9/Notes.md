@@ -1,1 +1,0 @@
-﻿[Leon Black - Wikipedia](https://en.wikipedia.org/wiki/Leon_Black)

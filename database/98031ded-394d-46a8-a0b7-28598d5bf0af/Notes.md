@@ -1,1 +1,0 @@
-﻿[J. Robert Oppenheimer - Wikipedia](https://en.wikipedia.org/wiki/J._Robert_Oppenheimer)

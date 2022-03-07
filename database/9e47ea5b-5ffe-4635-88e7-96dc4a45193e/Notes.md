@@ -1,1 +1,0 @@
-﻿[Maurice E. Crumpacker - Wikipedia](https://en.wikipedia.org/wiki/Maurice_E._Crumpacker)

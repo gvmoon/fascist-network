@@ -1,1 +1,0 @@
-﻿[Milner's Kindergarten - Wikipedia](https://en.wikipedia.org/wiki/Milner%27s_Kindergarten)

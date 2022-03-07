@@ -1,1 +1,0 @@
-﻿[Charles E. Fuller - Wikipedia](https://en.wikipedia.org/wiki/Charles_E._Fuller)

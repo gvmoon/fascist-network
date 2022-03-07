@@ -1,1 +1,0 @@
-﻿[Boston Consulting Group - Wikipedia](https://en.wikipedia.org/wiki/Boston_Consulting_Group)

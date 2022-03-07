@@ -1,1 +1,0 @@
-﻿[Henry Ossian Flipper - Wikipedia](https://en.wikipedia.org/wiki/Henry_Ossian_Flipper)

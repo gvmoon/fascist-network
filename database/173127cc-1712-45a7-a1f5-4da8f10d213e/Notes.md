@@ -1,1 +1,0 @@
-﻿[Vitalik Buterin - Wikipedia](https://en.wikipedia.org/wiki/Vitalik_Buterin)

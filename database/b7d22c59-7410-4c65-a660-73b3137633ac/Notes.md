@@ -1,1 +1,0 @@
-﻿[Independence Institute - Wikipedia](https://en.wikipedia.org/wiki/Independence_Institute)

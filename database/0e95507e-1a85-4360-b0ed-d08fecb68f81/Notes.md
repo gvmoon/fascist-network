@@ -1,1 +1,0 @@
-﻿[E. Finley Carter - Wikipedia](https://en.wikipedia.org/wiki/E._Finley_Carter)

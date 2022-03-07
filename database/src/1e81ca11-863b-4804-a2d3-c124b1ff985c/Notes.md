@@ -1,0 +1,1 @@
+﻿[Richard B. Vail - Wikipedia](https://en.wikipedia.org/wiki/Richard_B._Vail)

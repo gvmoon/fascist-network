@@ -1,1 +1,0 @@
-﻿[Thelema - Wikipedia](https://en.wikipedia.org/wiki/Thelema)

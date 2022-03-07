@@ -1,1 +1,0 @@
-﻿[Scott Hahn - Wikipedia](https://en.wikipedia.org/wiki/Scott_Hahn)

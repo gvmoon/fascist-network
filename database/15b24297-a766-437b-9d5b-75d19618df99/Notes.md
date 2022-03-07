@@ -1,1 +1,0 @@
-﻿[Wally Lamb - Wikipedia](https://en.wikipedia.org/wiki/Wally_Lamb)

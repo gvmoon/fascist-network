@@ -1,1 +1,0 @@
-﻿[Alexander Chizhevsky - Wikipedia](https://en.wikipedia.org/wiki/Alexander_Chizhevsky)

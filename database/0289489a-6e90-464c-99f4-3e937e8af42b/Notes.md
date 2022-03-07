@@ -1,1 +1,0 @@
-﻿[Miami University - Wikipedia](https://en.wikipedia.org/wiki/Miami_University)

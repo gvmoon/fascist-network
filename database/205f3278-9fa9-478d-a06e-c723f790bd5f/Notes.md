@@ -1,1 +1,0 @@
-﻿[Martinism - Wikipedia](https://en.wikipedia.org/wiki/Martinism)

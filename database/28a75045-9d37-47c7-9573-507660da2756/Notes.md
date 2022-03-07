@@ -1,1 +1,0 @@
-﻿[Jim Inhofe - Wikipedia](https://en.wikipedia.org/wiki/Jim_Inhofe)

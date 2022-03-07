@@ -1,1 +1,0 @@
-﻿[Richard Nixon - Wikipedia](https://en.wikipedia.org/wiki/Richard_Nixon)

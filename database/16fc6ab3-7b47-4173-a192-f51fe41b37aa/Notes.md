@@ -1,1 +1,0 @@
-﻿[Reginald Hall - Wikipedia](https://en.wikipedia.org/wiki/Reginald_Hall)

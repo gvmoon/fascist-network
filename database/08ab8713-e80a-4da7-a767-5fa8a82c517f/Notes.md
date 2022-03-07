@@ -1,1 +1,0 @@
-﻿[Antonio Negri - Wikipedia](https://en.wikipedia.org/wiki/Antonio_Negri)

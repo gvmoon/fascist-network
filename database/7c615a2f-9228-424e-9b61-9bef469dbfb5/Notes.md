@@ -1,1 +1,0 @@
-﻿[Bilderberg meeting - Wikipedia](https://en.wikipedia.org/wiki/Bilderberg_meeting)

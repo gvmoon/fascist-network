@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Donald_Trump_2020_presidential_campaign

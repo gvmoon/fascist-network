@@ -1,1 +1,0 @@
-﻿[Guy Banister - Wikipedia](https://en.wikipedia.org/wiki/Guy_Banister)

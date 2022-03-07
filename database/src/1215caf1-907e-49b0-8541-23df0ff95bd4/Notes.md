@@ -1,0 +1,1 @@
+﻿[Chris Hedges - Wikipedia](https://en.wikipedia.org/wiki/Chris_Hedges)

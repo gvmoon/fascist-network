@@ -1,1 +1,0 @@
-﻿[Martinez de Pasqually - Wikipedia](https://en.wikipedia.org/wiki/Martinez_de_Pasqually)

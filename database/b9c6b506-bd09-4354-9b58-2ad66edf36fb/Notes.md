@@ -1,1 +1,0 @@
-﻿[Pat Gray - Wikipedia](https://en.wikipedia.org/wiki/Pat_Gray)

@@ -1,1 +1,0 @@
-﻿[Peter Wehner - Wikipedia](https://en.wikipedia.org/wiki/Peter_Wehner)

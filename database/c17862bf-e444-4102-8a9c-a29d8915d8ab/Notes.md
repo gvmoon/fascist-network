@@ -1,1 +1,0 @@
-﻿[Sigmund Freud - Wikipedia](https://en.wikipedia.org/wiki/Sigmund_Freud)

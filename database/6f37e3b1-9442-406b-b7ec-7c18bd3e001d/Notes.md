@@ -1,1 +1,0 @@
-﻿[Jeff Atwater - Wikipedia](https://en.wikipedia.org/wiki/Jeff_Atwater)

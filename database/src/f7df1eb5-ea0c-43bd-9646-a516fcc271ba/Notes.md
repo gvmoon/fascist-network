@@ -1,0 +1,1 @@
+﻿[Christopher Pearse Cranch - Wikipedia](https://en.wikipedia.org/wiki/Christopher_Pearse_Cranch)

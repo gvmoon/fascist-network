@@ -1,1 +1,0 @@
-﻿[Freedom Caucus - Wikipedia](https://en.wikipedia.org/wiki/Freedom_Caucus)

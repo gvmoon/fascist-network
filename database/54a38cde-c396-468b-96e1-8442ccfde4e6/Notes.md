@@ -1,1 +1,0 @@
-﻿[Nuremberg trials - Wikipedia](https://en.wikipedia.org/wiki/Nuremberg_trials)

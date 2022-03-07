@@ -1,1 +1,0 @@
-﻿[The Washington Institute for Near East Policy - Wikipedia](https://en.wikipedia.org/wiki/The_Washington_Institute_for_Near_East_Policy)

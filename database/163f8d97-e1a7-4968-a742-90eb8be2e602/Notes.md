@@ -1,1 +1,0 @@
-﻿[Global Consciousness Project - Wikipedia](https://en.wikipedia.org/wiki/Global_Consciousness_Project)

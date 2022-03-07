@@ -1,1 +1,0 @@
-﻿[Theodore_Parker](https://en.wikipedia.org/wiki/Theodore_Parker)

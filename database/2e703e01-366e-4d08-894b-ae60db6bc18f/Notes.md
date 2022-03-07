@@ -1,1 +1,0 @@
-﻿[Alexander Rodchenko - Wikipedia](https://en.wikipedia.org/wiki/Alexander_Rodchenko)

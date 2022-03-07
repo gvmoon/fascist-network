@@ -1,1 +1,0 @@
-﻿[Mark Sanford - Wikipedia](https://en.wikipedia.org/wiki/Mark_Sanford)

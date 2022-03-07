@@ -1,1 +1,0 @@
-﻿[Daimler AG - Wikipedia](https://en.wikipedia.org/wiki/Daimler_AG)

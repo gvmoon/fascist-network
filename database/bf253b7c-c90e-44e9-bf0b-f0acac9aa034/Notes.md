@@ -1,1 +1,0 @@
-﻿[Reubin Askew - Wikipedia](https://en.wikipedia.org/wiki/Reubin_Askew)

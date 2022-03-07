@@ -1,1 +1,0 @@
-﻿[Ron Paul - Wikipedia](https://en.wikipedia.org/wiki/Ron_Paul)

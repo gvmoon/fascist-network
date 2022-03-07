@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/William_Washington_Gordon_II

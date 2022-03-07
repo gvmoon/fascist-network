@@ -1,0 +1,1 @@
+﻿[George Leonard - Wikipedia](https://en.wikipedia.org/wiki/George_Leonard)

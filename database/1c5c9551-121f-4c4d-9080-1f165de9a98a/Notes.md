@@ -1,1 +1,0 @@
-﻿[Samuel P. Huntington - Wikipedia](https://en.wikipedia.org/wiki/Samuel_P._Huntington)

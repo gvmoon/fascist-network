@@ -1,1 +1,0 @@
-﻿[Phyllis Schlafly - Wikipedia](https://en.wikipedia.org/wiki/Phyllis_Schlafly)

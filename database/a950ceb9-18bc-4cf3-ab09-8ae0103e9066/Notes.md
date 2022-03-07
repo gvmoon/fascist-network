@@ -1,1 +1,0 @@
-﻿[Phil Goff - Wikipedia](https://en.wikipedia.org/wiki/Phil_Goff)

@@ -1,0 +1,1 @@
+﻿[George H. W. Bush - Wikipedia](https://en.wikipedia.org/wiki/George_H._W._Bush)

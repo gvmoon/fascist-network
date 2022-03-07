@@ -1,0 +1,1 @@
+﻿[International Charismatic Bible Ministries – Who is on board? « Discernment Directory](https://discernmentdirectory.wordpress.com/2008/10/04/international-charismatic-bible-ministries-who-is-on-board/)

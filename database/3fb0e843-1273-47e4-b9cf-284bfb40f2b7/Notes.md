@@ -1,1 +1,0 @@
-﻿[Coors Brewing Company - Wikipedia](https://en.wikipedia.org/wiki/Coors_Brewing_Company)

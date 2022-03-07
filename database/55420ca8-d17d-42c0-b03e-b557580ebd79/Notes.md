@@ -1,1 +1,0 @@
-﻿[Arthur Seyss-Inquart - Wikipedia](https://en.wikipedia.org/wiki/Arthur_Seyss-Inquart)

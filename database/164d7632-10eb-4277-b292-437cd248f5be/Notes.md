@@ -1,1 +1,0 @@
-﻿[Alcoa - Wikipedia](https://en.wikipedia.org/wiki/Alcoa)

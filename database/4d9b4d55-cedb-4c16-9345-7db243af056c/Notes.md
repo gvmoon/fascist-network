@@ -1,1 +1,0 @@
-﻿[Archaeology - Wikipedia](https://en.wikipedia.org/wiki/Archaeology)

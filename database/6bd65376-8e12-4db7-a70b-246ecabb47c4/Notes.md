@@ -1,1 +1,0 @@
-﻿[Vanderbilt family - Wikipedia](https://en.wikipedia.org/wiki/Vanderbilt_family)

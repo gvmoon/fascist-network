@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Leo_L%C3%B6wenthal

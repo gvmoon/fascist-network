@@ -1,1 +1,0 @@
-﻿[Henry Churchill de Mille - Wikipedia](https://en.wikipedia.org/wiki/Henry_Churchill_de_Mille)

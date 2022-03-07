@@ -1,1 +1,0 @@
-﻿[Mike Pompeo - Wikipedia](https://en.wikipedia.org/wiki/Mike_Pompeo)

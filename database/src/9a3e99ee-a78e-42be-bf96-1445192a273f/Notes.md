@@ -1,0 +1,1 @@
+﻿[California State Senate - Wikipedia](https://en.wikipedia.org/wiki/California_State_Senate)

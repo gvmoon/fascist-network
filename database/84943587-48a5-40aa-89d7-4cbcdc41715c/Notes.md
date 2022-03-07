@@ -1,1 +1,0 @@
-﻿[Bauhaus - Wikipedia](https://en.wikipedia.org/wiki/Bauhaus)

@@ -1,1 +1,0 @@
-﻿[Greek Orthodox Church - Wikipedia](https://en.wikipedia.org/wiki/Greek_Orthodox_Church)

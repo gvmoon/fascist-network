@@ -1,1 +1,0 @@
-﻿[John_Avanzini](https://en.wikipedia.org/wiki/John_Avanzini)

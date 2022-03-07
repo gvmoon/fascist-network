@@ -1,0 +1,1 @@
+﻿[Caroline Sturgis Tappan - Wikipedia](https://en.wikipedia.org/wiki/Caroline_Sturgis_Tappan)

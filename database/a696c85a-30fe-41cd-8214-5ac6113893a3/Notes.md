@@ -1,1 +1,0 @@
-﻿[Edmond Safra - Wikipedia](https://en.wikipedia.org/wiki/Edmond_Safra)

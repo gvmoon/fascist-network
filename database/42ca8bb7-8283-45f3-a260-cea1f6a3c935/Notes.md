@@ -1,1 +1,0 @@
-﻿[Bain & Company - Wikipedia](https://en.wikipedia.org/wiki/Bain_%26_Company)

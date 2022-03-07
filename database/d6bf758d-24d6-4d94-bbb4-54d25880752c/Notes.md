@@ -1,7 +1,0 @@
-﻿[Orson Pratt - Wikipedia](https://en.wikipedia.org/wiki/Orson_Pratt)
-
-
-|Born:|September 19, 1811|
-|Died:|October 3, 1881 (aged 70)|
-|Positions:|[Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve_Apostles_%28LDS_Church%29 "Quorum of the Twelve Apostles (LDS Church)"), January 20, 1843 – October 3, 1881{nl}[Quorum of the Twelve Apostles](https://en.wikipedia.org/wiki/Quorum_of_the_Twelve#Members_of_the_Quorum,_prior_to_1844 "Quorum of the Twelve"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), April 26, 1835 – August 20, 1842{nl}[LDS Church](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by [Three Witnesses](https://en.wikipedia.org/wiki/Three_Witnesses "Three Witnesses"), April 26, 1835|
-|Notes:|Younger brother of [Parley P. Pratt](https://en.wikipedia.org/wiki/Parley_P._Pratt "Parley P. Pratt").{nl}Was excommunicated for apostasy August 20, 1842, but readmitted January{nl}20, 1843. As a result, was given reduced seniority in June 1875. Last {nl}surviving member of the original Quorum. Under the direction of Brigham {nl}Young, he published [*The Seer*](https://en.wikipedia.org/wiki/The_Seer_%28periodical%29 "The Seer (periodical)").|

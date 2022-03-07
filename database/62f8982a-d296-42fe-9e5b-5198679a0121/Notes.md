@@ -1,1 +1,0 @@
-﻿[Anti-communism - Wikipedia](https://en.wikipedia.org/wiki/Anti-communism)

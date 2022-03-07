@@ -1,1 +1,0 @@
-﻿[Robert Ley - Wikipedia](https://en.wikipedia.org/wiki/Robert_Ley)

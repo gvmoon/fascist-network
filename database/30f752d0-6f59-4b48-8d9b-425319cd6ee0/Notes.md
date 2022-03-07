@@ -1,1 +1,0 @@
-﻿[Richard Russell Jr. - Wikipedia](https://en.wikipedia.org/wiki/Richard_Russell_Jr.)

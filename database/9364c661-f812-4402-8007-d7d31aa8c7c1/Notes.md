@@ -1,1 +1,0 @@
-﻿[Bible Missionary Church - Wikipedia](https://en.wikipedia.org/wiki/Bible_Missionary_Church)

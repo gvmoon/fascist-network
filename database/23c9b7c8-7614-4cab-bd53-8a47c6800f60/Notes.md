@@ -1,1 +1,0 @@
-﻿[M. Craig Barnes - Wikipedia](https://en.wikipedia.org/wiki/M._Craig_Barnes)

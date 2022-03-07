@@ -1,1 +1,0 @@
-﻿[https://en.wikipedia.org/wiki/Jean_Baptiste_August_Kessler](https://en.wikipedia.org/wiki/Royal_Dutch_Shell)

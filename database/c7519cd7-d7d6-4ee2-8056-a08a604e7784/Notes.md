@@ -1,1 +1,0 @@
-﻿[WestExec Advisors - Wikipedia](https://en.wikipedia.org/wiki/WestExec_Advisors)

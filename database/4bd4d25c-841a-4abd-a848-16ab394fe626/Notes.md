@@ -1,1 +1,0 @@
-﻿[Colin Powell - Wikipedia](https://en.wikipedia.org/wiki/Colin_Powell)

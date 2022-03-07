@@ -1,1 +1,0 @@
-﻿[Eric S. Edelman - Wikipedia](https://en.wikipedia.org/wiki/Eric_S._Edelman)

@@ -1,1 +1,0 @@
-﻿[Presidency of Bill Clinton - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_Bill_Clinton)

@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Gregory_Paul_of_Brzeziny

@@ -1,1 +1,0 @@
-﻿[Whirlpool Corporation - Wikipedia](https://en.wikipedia.org/wiki/Whirlpool_Corporation)

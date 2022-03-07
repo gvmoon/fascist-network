@@ -1,1 +1,0 @@
-﻿[Maxie Dunnam - Wikipedia](https://en.wikipedia.org/wiki/Maxie_Dunnam)

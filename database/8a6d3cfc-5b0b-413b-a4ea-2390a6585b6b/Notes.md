@@ -1,1 +1,0 @@
-﻿[Curtis Carlson - Wikipedia](https://en.wikipedia.org/wiki/Curtis_Carlson)

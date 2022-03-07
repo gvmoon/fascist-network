@@ -1,0 +1,1 @@
+﻿[Ellen Sturgis Hooper - Wikipedia](https://en.wikipedia.org/wiki/Ellen_Sturgis_Hooper)

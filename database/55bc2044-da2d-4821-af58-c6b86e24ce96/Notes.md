@@ -1,1 +1,0 @@
-﻿[Dwight D. Eisenhower - Wikipedia](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower)

@@ -1,1 +1,0 @@
-﻿[Associate Justice of the Supreme Court of the United States - Wikipedia](https://en.wikipedia.org/wiki/Associate_Justice_of_the_Supreme_Court_of_the_United_States)

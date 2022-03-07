@@ -1,1 +1,0 @@
-﻿[James Wesley Rawles - Wikipedia](https://en.wikipedia.org/wiki/James_Wesley_Rawles)

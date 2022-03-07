@@ -1,1 +1,0 @@
-﻿[John F. Harris - Wikipedia](https://en.wikipedia.org/wiki/John_F._Harris)

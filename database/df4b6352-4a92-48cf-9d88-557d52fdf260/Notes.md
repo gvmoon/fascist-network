@@ -1,1 +1,0 @@
-﻿[Fairfax Financial - Wikipedia](https://en.wikipedia.org/wiki/Fairfax_Financial)

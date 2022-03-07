@@ -1,1 +1,0 @@
-﻿[Aleksandr Solzhenitsyn - Wikipedia](https://en.wikipedia.org/wiki/Aleksandr_Solzhenitsyn)

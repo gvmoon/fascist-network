@@ -1,1 +1,0 @@
-﻿[Thomas J. Campbell (university president) - Wikipedia](https://en.wikipedia.org/wiki/Thomas_J._Campbell_(university_president))

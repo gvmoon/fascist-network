@@ -1,1 +1,0 @@
-﻿[Lily Safra - Wikipedia](https://en.wikipedia.org/wiki/Lily_Safra)

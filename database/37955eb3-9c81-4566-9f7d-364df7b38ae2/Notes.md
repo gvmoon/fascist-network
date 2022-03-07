@@ -1,1 +1,0 @@
-﻿[Transcendental Club - Wikipedia](https://en.wikipedia.org/wiki/Transcendental_Club)

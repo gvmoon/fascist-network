@@ -1,1 +1,0 @@
-﻿[Galen Weston - Wikipedia](https://en.wikipedia.org/wiki/Galen_Weston)

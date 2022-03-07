@@ -1,1 +1,0 @@
-﻿[Jim Garrison - Wikipedia](https://en.wikipedia.org/wiki/Jim_Garrison)

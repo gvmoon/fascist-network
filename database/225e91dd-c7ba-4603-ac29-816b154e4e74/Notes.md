@@ -1,1 +1,0 @@
-﻿[Peire de Montagut - Wikipedia](https://en.wikipedia.org/wiki/Peire_de_Montagut)

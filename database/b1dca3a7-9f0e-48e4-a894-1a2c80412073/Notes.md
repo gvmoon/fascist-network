@@ -1,1 +1,0 @@
-﻿[Jerry Prevo - Wikipedia](https://en.wikipedia.org/wiki/Jerry_Prevo)

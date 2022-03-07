@@ -1,1 +1,0 @@
-﻿[John E. McLaughlin - Wikipedia](https://en.wikipedia.org/wiki/John_E._McLaughlin)

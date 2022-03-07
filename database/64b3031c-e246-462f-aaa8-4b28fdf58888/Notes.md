@@ -1,1 +1,0 @@
-﻿[Charles Coughlin - Wikipedia](https://en.wikipedia.org/wiki/Charles_Coughlin)

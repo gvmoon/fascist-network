@@ -1,1 +1,0 @@
-﻿[Friedrich von Wieser - Wikipedia](https://en.wikipedia.org/wiki/Friedrich_von_Wieser)

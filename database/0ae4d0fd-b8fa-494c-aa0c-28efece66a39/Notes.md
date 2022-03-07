@@ -1,1 +1,0 @@
-﻿[Leonard Carmichael - Wikipedia](https://en.wikipedia.org/wiki/Leonard_Carmichael)

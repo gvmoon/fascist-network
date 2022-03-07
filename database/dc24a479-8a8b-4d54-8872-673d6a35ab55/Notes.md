@@ -1,1 +1,0 @@
-﻿[Ghislaine Maxwell - Wikipedia](https://en.wikipedia.org/wiki/Ghislaine_Maxwell)

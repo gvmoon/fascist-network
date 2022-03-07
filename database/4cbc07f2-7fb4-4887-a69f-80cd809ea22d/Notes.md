@@ -1,1 +1,0 @@
-﻿[Harold L. Brode - Wikipedia](https://en.wikipedia.org/wiki/Harold_L._Brode)

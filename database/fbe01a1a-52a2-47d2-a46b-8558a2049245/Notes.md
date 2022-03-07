@@ -1,1 +1,0 @@
-﻿[Warren Randolph Burgess - Wikipedia](https://en.wikipedia.org/wiki/Warren_Randolph_Burgess)

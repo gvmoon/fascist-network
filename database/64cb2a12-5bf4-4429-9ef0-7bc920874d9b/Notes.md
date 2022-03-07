@@ -1,1 +1,0 @@
-﻿[Carnegie Foundation for the Advancement of Teaching - Wikipedia](https://en.wikipedia.org/wiki/Carnegie_Foundation_for_the_Advancement_of_Teaching)

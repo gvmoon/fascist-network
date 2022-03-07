@@ -1,1 +1,0 @@
-﻿[William E. Simon - Wikipedia](https://en.wikipedia.org/wiki/William_E._Simon)

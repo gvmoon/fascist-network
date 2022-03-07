@@ -1,1 +1,0 @@
-﻿[AFL–CIO - Wikipedia](https://en.wikipedia.org/wiki/AFL%E2%80%93CIO)

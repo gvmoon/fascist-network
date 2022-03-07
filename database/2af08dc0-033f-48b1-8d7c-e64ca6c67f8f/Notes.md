@@ -1,1 +1,0 @@
-﻿[Willmoore Kendall - Wikipedia](https://en.wikipedia.org/wiki/Willmoore_Kendall)

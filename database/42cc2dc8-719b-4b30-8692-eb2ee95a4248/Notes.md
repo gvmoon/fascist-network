@@ -1,1 +1,0 @@
-﻿[Svoboda (political party) - Wikipedia](https://en.wikipedia.org/wiki/Svoboda_(political_party))

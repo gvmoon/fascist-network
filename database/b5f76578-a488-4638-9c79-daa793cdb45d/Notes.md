@@ -1,1 +1,0 @@
-﻿[Nicholas Bobadilla - Wikipedia](https://en.wikipedia.org/wiki/Nicholas_Bobadilla)

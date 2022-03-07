@@ -1,1 +1,0 @@
-﻿[Douglas Murray (author) - Wikipedia](https://en.wikipedia.org/wiki/Douglas_Murray_(author))

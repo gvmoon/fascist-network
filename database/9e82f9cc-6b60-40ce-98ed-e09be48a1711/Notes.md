@@ -1,1 +1,0 @@
-﻿[Harry Brittain - Wikipedia](https://en.wikipedia.org/wiki/Harry_Brittain)

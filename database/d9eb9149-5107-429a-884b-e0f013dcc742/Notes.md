@@ -1,1 +1,0 @@
-﻿[John Brennan (CIA officer) - Wikipedia](https://en.wikipedia.org/wiki/John_Brennan_(CIA_officer))

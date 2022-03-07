@@ -1,0 +1,1 @@
+﻿[Union Theological Seminary (New York City) - Wikipedia](https://en.wikipedia.org/wiki/Union_Theological_Seminary_(New_York_City))

@@ -1,1 +1,0 @@
-﻿[Conrad Burns - Wikipedia](https://en.wikipedia.org/wiki/Conrad_Burns)

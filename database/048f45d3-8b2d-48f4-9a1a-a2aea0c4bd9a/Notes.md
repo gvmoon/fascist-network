@@ -1,1 +1,0 @@
-﻿[Lloyd Shapley - Wikipedia](https://en.wikipedia.org/wiki/Lloyd_Shapley)

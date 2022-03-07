@@ -1,1 +1,0 @@
-﻿[Arizona House of Representatives - Wikipedia](https://en.wikipedia.org/wiki/Arizona_House_of_Representatives)

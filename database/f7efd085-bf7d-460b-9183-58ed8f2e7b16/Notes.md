@@ -1,1 +1,0 @@
-﻿[William E. Boeing - Wikipedia](https://en.wikipedia.org/wiki/William_E._Boeing)

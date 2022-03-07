@@ -1,1 +1,0 @@
-﻿[Adolph Coors Company - Wikipedia](https://en.wikipedia.org/wiki/Adolph_Coors_Company)

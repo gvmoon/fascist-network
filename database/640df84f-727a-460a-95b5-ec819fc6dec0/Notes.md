@@ -1,1 +1,0 @@
-﻿[Trinity Chapel Complex - Wikipedia](https://en.wikipedia.org/wiki/Trinity_Chapel_Complex)

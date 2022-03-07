@@ -1,1 +1,0 @@
-﻿[Cornelius Vanderbilt - Wikipedia](https://en.wikipedia.org/wiki/Cornelius_Vanderbilt)

@@ -1,1 +1,0 @@
-﻿[Vanguard America - Wikipedia](https://en.wikipedia.org/wiki/Vanguard_America)

@@ -1,0 +1,1 @@
+﻿[Archival Resources in Wisconsin: Descriptive Finding Aids](https://digicoll.library.wisc.edu/cgi/f/findaid/findaid-idx?c=wiarchives;cc=wiarchives;view=text;rgn=main;didno=uw-whs-mss00341)

@@ -1,1 +1,0 @@
-﻿[Military Order of the Loyal Legion of the United States - Wikipedia](https://en.wikipedia.org/wiki/Military_Order_of_the_Loyal_Legion_of_the_United_States)

@@ -1,1 +1,0 @@
-﻿[Presidency of Dwight D. Eisenhower - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_Dwight_D._Eisenhower)

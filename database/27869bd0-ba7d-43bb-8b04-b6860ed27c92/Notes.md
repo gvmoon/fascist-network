@@ -1,1 +1,0 @@
-﻿[Anti-Bolshevik Bloc of Nations - Wikipedia](https://en.wikipedia.org/wiki/Anti-Bolshevik_Bloc_of_Nations)

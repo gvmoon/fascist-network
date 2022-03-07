@@ -1,1 +1,0 @@
-﻿[British and Foreign Unitarian Association - Wikipedia](https://en.wikipedia.org/wiki/British_and_Foreign_Unitarian_Association)

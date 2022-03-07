@@ -1,1 +1,0 @@
-﻿[Lawrence Krauss - Wikipedia](https://en.wikipedia.org/wiki/Lawrence_Krauss)

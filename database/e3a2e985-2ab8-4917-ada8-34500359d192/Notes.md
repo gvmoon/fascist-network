@@ -1,1 +1,0 @@
-﻿[Vitus Huonder - Wikipedia](https://en.wikipedia.org/wiki/Vitus_Huonder)

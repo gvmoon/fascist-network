@@ -1,1 +1,0 @@
-﻿[James Freeman Clarke - Wikipedia](https://en.wikipedia.org/wiki/James_Freeman_Clarke)

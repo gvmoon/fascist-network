@@ -1,1 +1,0 @@
-﻿[J. Edgar Hoover - Wikipedia](https://en.wikipedia.org/wiki/J._Edgar_Hoover)

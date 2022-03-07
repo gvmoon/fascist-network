@@ -1,1 +1,0 @@
-﻿[Friedrich Hayek - Wikipedia](https://en.wikipedia.org/wiki/F._A._Hayek)

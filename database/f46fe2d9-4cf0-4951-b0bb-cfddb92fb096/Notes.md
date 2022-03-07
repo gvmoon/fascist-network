@@ -1,1 +1,0 @@
-﻿[John F. Kennedy - Wikipedia](https://en.wikipedia.org/wiki/John_F._Kennedy)

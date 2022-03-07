@@ -1,1 +1,0 @@
-﻿[Russian cosmism - Wikipedia](https://en.wikipedia.org/wiki/Russian_cosmism)

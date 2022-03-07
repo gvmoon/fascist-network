@@ -1,0 +1,1 @@
+﻿[Robert Mercer - Wikipedia](https://en.wikipedia.org/wiki/Robert_Mercer)

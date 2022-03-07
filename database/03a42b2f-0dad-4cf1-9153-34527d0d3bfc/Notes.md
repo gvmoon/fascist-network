@@ -1,1 +1,0 @@
-﻿[Norman E. Rosenthal - Wikipedia](https://en.wikipedia.org/wiki/Norman_E._Rosenthal)

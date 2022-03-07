@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Stephen_Jay_Gould

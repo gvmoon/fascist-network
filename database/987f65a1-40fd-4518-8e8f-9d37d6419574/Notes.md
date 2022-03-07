@@ -1,1 +1,0 @@
-﻿[Russian National Unity - Wikipedia](https://en.wikipedia.org/wiki/Russian_National_Unity)

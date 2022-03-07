@@ -1,1 +1,0 @@
-﻿[Rockefeller Foundation - Wikipedia](https://en.wikipedia.org/wiki/Rockefeller_Foundation)

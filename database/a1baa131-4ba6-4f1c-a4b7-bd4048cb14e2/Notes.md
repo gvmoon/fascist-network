@@ -1,1 +1,0 @@
-﻿[John Milnor - Wikipedia](https://en.wikipedia.org/wiki/John_Milnor)

@@ -1,1 +1,0 @@
-﻿[Paul Flory - Wikipedia](https://en.wikipedia.org/wiki/Paul_Flory)

@@ -1,1 +1,0 @@
-﻿[Lauro Cavazos - Wikipedia](https://en.wikipedia.org/wiki/Lauro_Cavazos)

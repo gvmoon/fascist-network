@@ -1,0 +1,1 @@
+﻿[Maajid Nawaz - Wikipedia](https://en.wikipedia.org/wiki/Maajid_Nawaz)

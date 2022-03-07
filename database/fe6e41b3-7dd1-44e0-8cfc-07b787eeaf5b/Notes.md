@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/B._B._Warfield

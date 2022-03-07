@@ -1,1 +1,0 @@
-﻿[Daniel T. McCarty - Wikipedia](https://en.wikipedia.org/wiki/Daniel_T._McCarty)

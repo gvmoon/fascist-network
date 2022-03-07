@@ -1,1 +1,0 @@
-﻿[Charles Wesley - Wikipedia](https://en.wikipedia.org/wiki/Charles_Wesley)

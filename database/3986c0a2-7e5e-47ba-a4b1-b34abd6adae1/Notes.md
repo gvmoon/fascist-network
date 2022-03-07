@@ -1,1 +1,0 @@
-﻿[Ashley Moody - Wikipedia](https://en.wikipedia.org/wiki/Ashley_Moody)

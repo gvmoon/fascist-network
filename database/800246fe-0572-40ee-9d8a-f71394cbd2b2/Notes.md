@@ -1,1 +1,0 @@
-﻿[Jami Miscik - Wikipedia](https://en.wikipedia.org/wiki/Jami_Miscik)

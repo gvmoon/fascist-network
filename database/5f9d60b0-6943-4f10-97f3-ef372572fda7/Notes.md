@@ -1,1 +1,0 @@
-﻿[Democratic National Convention - Wikipedia](https://en.wikipedia.org/wiki/Democratic_National_Convention)

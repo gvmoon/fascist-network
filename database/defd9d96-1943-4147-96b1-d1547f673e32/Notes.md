@@ -1,1 +1,0 @@
-﻿[Columbia University - Wikipedia](https://en.wikipedia.org/wiki/Columbia_University)

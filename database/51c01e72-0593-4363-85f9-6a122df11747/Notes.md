@@ -1,1 +1,0 @@
-﻿[Daniel_Ellsberg](https://en.wikipedia.org/wiki/Daniel_Ellsberg)

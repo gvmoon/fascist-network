@@ -1,1 +1,0 @@
-﻿[Lewis Rosenstiel - Wikipedia](https://en.wikipedia.org/wiki/Lewis_Rosenstiel)

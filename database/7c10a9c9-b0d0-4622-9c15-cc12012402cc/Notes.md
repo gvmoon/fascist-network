@@ -1,1 +1,0 @@
-﻿[Alvah Curtis Roebuck - Wikipedia](https://en.wikipedia.org/wiki/Alvah_Curtis_Roebuck)

@@ -1,1 +1,0 @@
-﻿[University of Edinburgh - Wikipedia](https://en.wikipedia.org/wiki/University_of_Edinburgh)

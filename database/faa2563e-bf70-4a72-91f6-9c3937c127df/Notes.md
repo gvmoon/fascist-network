@@ -1,1 +1,0 @@
-﻿[Quincy Wright - Wikipedia](https://en.wikipedia.org/wiki/Quincy_Wright)

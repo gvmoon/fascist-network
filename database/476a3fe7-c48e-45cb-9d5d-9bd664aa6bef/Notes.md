@@ -1,1 +1,0 @@
-﻿[Robert Audi - Wikipedia](https://en.wikipedia.org/wiki/Robert_Audi)

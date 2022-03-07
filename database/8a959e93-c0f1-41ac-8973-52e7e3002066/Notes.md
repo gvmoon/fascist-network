@@ -1,1 +1,0 @@
-﻿[University of Wrocław - Wikipedia](https://en.wikipedia.org/wiki/University_of_Wroc%C5%82aw)

@@ -1,1 +1,0 @@
-﻿[Alan Rodger, Baron Rodger of Earlsferry - Wikipedia](https://en.wikipedia.org/wiki/Alan_Rodger,_Baron_Rodger_of_Earlsferry)

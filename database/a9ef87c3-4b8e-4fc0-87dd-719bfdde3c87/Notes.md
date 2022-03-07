@@ -1,1 +1,0 @@
-﻿[Joseph Goebbels - Wikipedia](https://en.wikipedia.org/wiki/Joseph_Goebbels)

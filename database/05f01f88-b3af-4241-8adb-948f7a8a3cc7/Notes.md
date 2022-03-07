@@ -1,1 +1,0 @@
-﻿[Church of Jesus Christ–Christian - Wikipedia](https://en.wikipedia.org/wiki/Church_of_Jesus_Christ%E2%80%93Christian)

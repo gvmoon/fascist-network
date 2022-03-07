@@ -1,1 +1,0 @@
-﻿[Jon Stewart - Wikipedia](https://en.wikipedia.org/wiki/Jon_Stewart)

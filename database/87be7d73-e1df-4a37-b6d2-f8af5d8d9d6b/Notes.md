@@ -1,1 +1,0 @@
-﻿[United States Agency for International Development - Wikipedia](https://en.wikipedia.org/wiki/United_States_Agency_for_International_Development)

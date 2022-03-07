@@ -1,0 +1,1 @@
+﻿[John Drew Sheard, Sr. - Wikipedia](https://en.wikipedia.org/wiki/John_Drew_Sheard,_Sr.)

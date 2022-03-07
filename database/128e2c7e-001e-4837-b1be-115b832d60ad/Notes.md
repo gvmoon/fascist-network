@@ -1,1 +1,0 @@
-﻿[Paul Kelly (criminal) - Wikipedia](https://en.wikipedia.org/wiki/Paul_Kelly_(criminal))

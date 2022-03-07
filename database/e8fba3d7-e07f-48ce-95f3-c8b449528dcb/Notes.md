@@ -1,1 +1,0 @@
-﻿[Warren Commission - Wikipedia](https://en.wikipedia.org/wiki/Warren_Commission)

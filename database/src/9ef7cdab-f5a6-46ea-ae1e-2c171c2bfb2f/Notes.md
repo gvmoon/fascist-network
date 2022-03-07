@@ -1,0 +1,1 @@
+﻿[Fundamentalist Church of Jesus Christ of Latter-Day Saints - Wikipedia](https://en.wikipedia.org/wiki/Fundamentalist_Church_of_Jesus_Christ_of_Latter-Day_Saints)

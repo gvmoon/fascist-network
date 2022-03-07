@@ -1,1 +1,0 @@
-﻿[Aurelio Peccei - Wikipedia](https://en.wikipedia.org/wiki/Aurelio_Peccei)

@@ -1,1 +1,0 @@
-﻿[The Spectator - Wikipedia](https://en.wikipedia.org/wiki/The_Spectator)

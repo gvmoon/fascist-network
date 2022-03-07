@@ -1,1 +1,0 @@
-﻿[A. Alfred Taubman - Wikipedia](https://en.wikipedia.org/wiki/A._Alfred_Taubman)

@@ -1,1 +1,0 @@
-﻿[Ray_Mabus](https://en.wikipedia.org/wiki/Ray_Mabus)

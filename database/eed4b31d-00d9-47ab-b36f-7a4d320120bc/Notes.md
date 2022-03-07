@@ -1,1 +1,0 @@
-﻿[Max Kohnstamm - Wikipedia](https://en.wikipedia.org/wiki/Max_Kohnstamm)

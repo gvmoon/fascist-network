@@ -1,0 +1,1 @@
+﻿[Gilbert Ryle - Wikipedia](https://en.wikipedia.org/wiki/Gilbert_Ryle)

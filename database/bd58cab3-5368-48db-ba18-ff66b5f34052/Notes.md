@@ -1,1 +1,0 @@
-﻿[First Presbyterian Church of Hollywood - Wikipedia](https://en.wikipedia.org/wiki/First_Presbyterian_Church_of_Hollywood)

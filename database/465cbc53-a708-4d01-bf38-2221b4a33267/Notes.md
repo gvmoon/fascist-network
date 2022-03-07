@@ -1,1 +1,0 @@
-﻿[Jana Duggar - Wikipedia](https://en.wikipedia.org/wiki/Jana_Duggar)

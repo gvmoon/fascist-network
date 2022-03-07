@@ -1,0 +1,1 @@
+﻿[Knox College (Illinois) - Wikipedia](https://en.wikipedia.org/wiki/Knox_College_(Illinois))

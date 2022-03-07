@@ -1,1 +1,0 @@
-﻿[Mike Leavitt - Wikipedia](https://en.wikipedia.org/wiki/Mike_Leavitt)

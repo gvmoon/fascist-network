@@ -1,1 +1,0 @@
-﻿[Richard Viguerie - Wikipedia](https://en.wikipedia.org/wiki/Richard_Viguerie)

@@ -1,1 +1,0 @@
-﻿[W](https://en.wikipedia.org/wiki/W._Willard_Wirtz)

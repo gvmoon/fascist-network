@@ -1,0 +1,1 @@
+﻿[Daniel Bell - Wikipedia](https://en.wikipedia.org/wiki/Daniel_Bell)

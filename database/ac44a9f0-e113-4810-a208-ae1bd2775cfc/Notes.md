@@ -1,1 +1,0 @@
-﻿[Liberal Party (UK) - Wikipedia](https://en.wikipedia.org/wiki/Liberal_Party_(UK))

@@ -1,1 +1,0 @@
-﻿[Walther Bothe - Wikipedia](https://en.wikipedia.org/wiki/Walther_Bothe)

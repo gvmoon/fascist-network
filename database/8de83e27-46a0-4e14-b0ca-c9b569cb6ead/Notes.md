@@ -1,1 +1,0 @@
-﻿[Government of Ukraine - Wikipedia](https://en.wikipedia.org/wiki/Government_of_Ukraine)

@@ -1,1 +1,0 @@
-﻿[William Knowland - Wikipedia](https://en.wikipedia.org/wiki/William_Knowland)

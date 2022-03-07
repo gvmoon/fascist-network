@@ -1,1 +1,0 @@
-﻿[Marcus Loew - Wikipedia](https://en.wikipedia.org/wiki/Marcus_Loew)

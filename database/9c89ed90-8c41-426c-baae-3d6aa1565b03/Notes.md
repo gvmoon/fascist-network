@@ -1,1 +1,0 @@
-﻿[Frank H. Buck - Wikipedia](https://en.wikipedia.org/wiki/Frank_H._Buck)

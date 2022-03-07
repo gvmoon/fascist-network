@@ -1,1 +1,0 @@
-﻿[Robert Newton Flew - Wikipedia](https://en.wikipedia.org/wiki/Robert_Newton_Flew)

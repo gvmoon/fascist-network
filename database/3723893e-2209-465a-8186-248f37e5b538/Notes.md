@@ -1,1 +1,0 @@
-﻿[Walter Brennan - Wikipedia](https://en.wikipedia.org/wiki/Walter_Brennan)

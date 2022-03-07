@@ -1,1 +1,0 @@
-﻿[James Steinberg - Wikipedia](https://en.wikipedia.org/wiki/James_Steinberg)

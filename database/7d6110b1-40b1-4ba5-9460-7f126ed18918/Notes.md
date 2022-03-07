@@ -1,1 +1,0 @@
-﻿[Joseph Toynbee - Wikipedia](https://en.wikipedia.org/wiki/Joseph_Toynbee)

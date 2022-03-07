@@ -1,1 +1,0 @@
-﻿[James Gillogly - Wikipedia](https://en.wikipedia.org/wiki/James_Gillogly)

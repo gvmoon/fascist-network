@@ -1,1 +1,0 @@
-﻿[Edward Overton Jr. - Wikipedia](https://en.wikipedia.org/wiki/Edward_Overton_Jr.)

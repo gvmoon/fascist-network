@@ -1,1 +1,0 @@
-﻿[Heinz Auerswald - Wikipedia](https://en.wikipedia.org/wiki/Heinz_Auerswald)

@@ -1,1 +1,0 @@
-﻿[Council on Foreign Relations - Wikipedia](https://en.wikipedia.org/wiki/Council_on_Foreign_Relations)

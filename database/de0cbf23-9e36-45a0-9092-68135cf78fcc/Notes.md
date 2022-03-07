@@ -1,1 +1,0 @@
-﻿[Lake Forest College - Wikipedia](https://en.wikipedia.org/wiki/Lake_Forest_College)

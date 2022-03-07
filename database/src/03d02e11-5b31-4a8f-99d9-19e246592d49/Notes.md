@@ -1,0 +1,1 @@
+﻿[Magnus Malan - Wikipedia](https://en.wikipedia.org/wiki/Magnus_Malan)

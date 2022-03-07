@@ -1,1 +1,0 @@
-﻿[Nazi Party - Wikipedia](https://en.wikipedia.org/wiki/Nazi_Party)

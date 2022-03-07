@@ -1,1 +1,0 @@
-﻿[Mitt Romney - Wikipedia](https://en.wikipedia.org/wiki/Mitt_Romney)

@@ -1,1 +1,0 @@
-﻿[David Rockefeller - Wikipedia](https://en.wikipedia.org/wiki/David_Rockefeller)

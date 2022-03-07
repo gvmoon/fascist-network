@@ -1,1 +1,0 @@
-﻿[Anton LaVey - Wikipedia](https://en.wikipedia.org/wiki/Anton_LaVey)

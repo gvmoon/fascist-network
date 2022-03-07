@@ -1,1 +1,0 @@
-﻿[Teutonic Order - Wikipedia](https://en.wikipedia.org/wiki/Teutonic_Order)

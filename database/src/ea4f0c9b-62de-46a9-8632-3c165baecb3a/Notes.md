@@ -1,0 +1,1 @@
+﻿[John Lintner - Wikipedia](https://en.wikipedia.org/wiki/John_Lintner)

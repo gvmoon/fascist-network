@@ -1,1 +1,0 @@
-﻿[Alpha Phi Alpha - Wikipedia](https://en.wikipedia.org/wiki/Alpha_Phi_Alpha)

@@ -1,1 +1,0 @@
-﻿[German idealism - Wikipedia](https://en.wikipedia.org/wiki/German_idealism)

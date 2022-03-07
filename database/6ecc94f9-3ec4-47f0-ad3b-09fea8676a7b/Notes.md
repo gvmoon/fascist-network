@@ -1,1 +1,0 @@
-﻿[Edward Teller - Wikipedia](https://en.wikipedia.org/wiki/Edward_Teller)

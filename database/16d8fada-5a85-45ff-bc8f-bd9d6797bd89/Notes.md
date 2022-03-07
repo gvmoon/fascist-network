@@ -1,1 +1,0 @@
-﻿[John Sweeney (labor leader) - Wikipedia](https://en.wikipedia.org/wiki/John_Sweeney_(labor_leader))

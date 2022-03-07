@@ -1,1 +1,0 @@
-﻿[Arnold A. Saltzman Institute of War and Peace Studies - Wikipedia](https://en.wikipedia.org/wiki/Arnold_A._Saltzman_Institute_of_War_and_Peace_Studies)

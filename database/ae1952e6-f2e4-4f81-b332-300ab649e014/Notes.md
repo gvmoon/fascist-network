@@ -1,1 +1,0 @@
-﻿[Jerry Falwell Jr. - Wikipedia](https://en.wikipedia.org/wiki/Jerry_Falwell_Jr.)

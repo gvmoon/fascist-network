@@ -1,1 +1,0 @@
-﻿[Wilhelm Keitel - Wikipedia](https://en.wikipedia.org/wiki/Wilhelm_Keitel)

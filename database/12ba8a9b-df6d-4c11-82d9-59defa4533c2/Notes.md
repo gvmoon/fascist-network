@@ -1,1 +1,0 @@
-﻿[Deutsche Reichspartei - Wikipedia](https://en.wikipedia.org/wiki/Deutsche_Reichspartei)

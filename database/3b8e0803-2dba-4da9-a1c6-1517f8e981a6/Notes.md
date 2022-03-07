@@ -1,1 +1,0 @@
-﻿[Louis A. Johnson - Wikipedia](https://en.wikipedia.org/wiki/Louis_A._Johnson)

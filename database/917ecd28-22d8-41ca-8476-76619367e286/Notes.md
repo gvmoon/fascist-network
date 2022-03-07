@@ -1,1 +1,0 @@
-﻿[Mary-Anne Plaatjies van Huffel - Wikipedia](https://en.wikipedia.org/wiki/Mary-Anne_Plaatjies_van_Huffel)

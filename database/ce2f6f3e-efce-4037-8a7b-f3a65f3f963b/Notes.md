@@ -1,1 +1,0 @@
-﻿[Matthias N. Forney - Wikipedia](https://en.wikipedia.org/wiki/Matthias_N._Forney)

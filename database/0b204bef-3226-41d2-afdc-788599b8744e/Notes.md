@@ -1,1 +1,0 @@
-﻿[Peter Schiff - Wikipedia](https://en.wikipedia.org/wiki/Peter_Schiff)

@@ -1,1 +1,0 @@
-﻿[Orville Freeman - Wikipedia](https://en.wikipedia.org/wiki/Orville_Freeman)

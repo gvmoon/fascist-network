@@ -1,1 +1,0 @@
-﻿[Gavin Wood - Wikipedia](https://en.wikipedia.org/wiki/Gavin_Wood)

@@ -1,1 +1,0 @@
-﻿[Reformed Baptists - Wikipedia](https://en.wikipedia.org/wiki/Reformed_Baptists)

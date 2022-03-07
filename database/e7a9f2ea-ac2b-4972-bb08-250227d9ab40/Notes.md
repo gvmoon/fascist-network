@@ -1,1 +1,0 @@
-﻿[Steven Hyman - Wikipedia](https://en.wikipedia.org/wiki/Steven_Hyman)

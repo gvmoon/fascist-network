@@ -1,1 +1,0 @@
-﻿[Joseph T. Salerno - Wikipedia](https://en.wikipedia.org/wiki/Joseph_T._Salerno)

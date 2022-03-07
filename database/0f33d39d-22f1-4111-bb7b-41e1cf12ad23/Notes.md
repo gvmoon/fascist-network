@@ -1,1 +1,0 @@
-﻿[Lincoln-West High School - Wikipedia](https://en.wikipedia.org/wiki/Lincoln-West_High_School)

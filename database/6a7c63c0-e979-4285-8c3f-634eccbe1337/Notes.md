@@ -1,1 +1,0 @@
-﻿[Wharton School of the University of Pennsylvania - Wikipedia](https://en.wikipedia.org/wiki/Wharton_School_of_the_University_of_Pennsylvania)

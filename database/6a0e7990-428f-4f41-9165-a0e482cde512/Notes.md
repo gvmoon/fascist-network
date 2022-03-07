@@ -1,1 +1,0 @@
-﻿[Elliott Abrams - Wikipedia](https://en.wikipedia.org/wiki/Elliott_Abrams)

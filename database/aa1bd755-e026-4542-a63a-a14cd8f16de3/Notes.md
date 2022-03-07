@@ -1,1 +1,0 @@
-﻿[Barend Klaas Kuiper - Wikipedia](https://en.wikipedia.org/wiki/Barend_Klaas_Kuiper)

@@ -1,1 +1,0 @@
-﻿[White power skinhead - Wikipedia](https://en.wikipedia.org/wiki/White_power_skinhead)

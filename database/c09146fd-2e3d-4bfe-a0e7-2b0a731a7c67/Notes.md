@@ -1,1 +1,0 @@
-﻿[John Stuart Mill - Wikipedia](https://en.wikipedia.org/wiki/John_Stuart_Mill)

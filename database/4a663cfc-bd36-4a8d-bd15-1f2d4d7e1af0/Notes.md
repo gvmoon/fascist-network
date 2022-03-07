@@ -1,1 +1,0 @@
-﻿[Joseph A. O'Hare - Wikipedia](https://en.wikipedia.org/wiki/Joseph_A._O%27Hare)

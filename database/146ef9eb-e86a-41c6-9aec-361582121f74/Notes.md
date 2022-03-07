@@ -1,1 +1,0 @@
-﻿[Don Knowlton - Wikipedia](https://en.wikipedia.org/wiki/Don_Knowlton)

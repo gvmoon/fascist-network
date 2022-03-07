@@ -1,1 +1,0 @@
-﻿[Michael Morell - Wikipedia](https://en.wikipedia.org/wiki/Michael_Morell)

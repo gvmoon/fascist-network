@@ -1,1 +1,0 @@
-﻿[Herman Dooyeweerd - Wikipedia](https://en.wikipedia.org/wiki/Herman_Dooyeweerd)

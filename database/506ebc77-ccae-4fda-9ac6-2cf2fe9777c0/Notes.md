@@ -1,1 +1,0 @@
-﻿[Radbot of Klettgau - Wikipedia](https://en.wikipedia.org/wiki/Radbot_of_Klettgau)

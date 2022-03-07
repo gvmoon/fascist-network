@@ -1,1 +1,0 @@
-﻿[Politico - Wikipedia](https://en.wikipedia.org/wiki/Politico)

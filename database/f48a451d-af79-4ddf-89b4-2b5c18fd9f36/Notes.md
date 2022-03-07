@@ -1,1 +1,0 @@
-﻿[The New School - Wikipedia](https://en.wikipedia.org/wiki/The_New_School)

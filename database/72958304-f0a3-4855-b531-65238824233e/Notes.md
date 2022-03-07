@@ -1,1 +1,0 @@
-﻿[New Deal - Wikipedia](https://en.wikipedia.org/wiki/New_Deal)

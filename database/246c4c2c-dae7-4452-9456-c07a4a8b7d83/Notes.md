@@ -1,1 +1,0 @@
-﻿[Nathaniel Hawthorne - Wikipedia](https://en.wikipedia.org/wiki/Nathaniel_Hawthorne)

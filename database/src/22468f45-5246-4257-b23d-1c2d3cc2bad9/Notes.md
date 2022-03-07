@@ -1,0 +1,1 @@
+﻿[Nikki Haley - Wikipedia](https://en.wikipedia.org/wiki/Nikki_Haley)

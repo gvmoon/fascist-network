@@ -1,1 +1,0 @@
-﻿[Prem Watsa - Wikipedia](https://en.wikipedia.org/wiki/Prem_Watsa)

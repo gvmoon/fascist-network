@@ -1,1 +1,0 @@
-﻿[Marianne Williamson - Wikipedia](https://en.wikipedia.org/wiki/Marianne_Williamson)

@@ -1,1 +1,0 @@
-﻿[Harry Elmer Barnes - Wikipedia](https://en.wikipedia.org/wiki/Harry_Elmer_Barnes)

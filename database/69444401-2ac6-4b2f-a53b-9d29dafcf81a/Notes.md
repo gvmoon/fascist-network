@@ -1,1 +1,0 @@
-﻿[Fiscal conservatism - Wikipedia](https://en.wikipedia.org/wiki/Fiscal_conservatism)

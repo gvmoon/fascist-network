@@ -1,1 +1,0 @@
-﻿[Karl Dönitz - Wikipedia](https://en.wikipedia.org/wiki/Karl_D%C3%B6nitz)

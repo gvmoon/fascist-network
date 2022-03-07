@@ -1,1 +1,0 @@
-﻿[Dick Carlson - Wikipedia](https://en.wikipedia.org/wiki/Dick_Carlson)

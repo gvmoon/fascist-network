@@ -1,1 +1,0 @@
-﻿[Stephen Peel - Wikipedia](https://en.wikipedia.org/wiki/Stephen_Peel)

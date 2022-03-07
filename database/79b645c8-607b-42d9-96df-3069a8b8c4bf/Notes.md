@@ -1,1 +1,0 @@
-﻿[Hoyt Vandenberg - Wikipedia](https://en.wikipedia.org/wiki/Hoyt_Vandenberg)

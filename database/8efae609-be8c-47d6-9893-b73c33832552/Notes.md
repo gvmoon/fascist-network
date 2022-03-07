@@ -1,1 +1,0 @@
-﻿[Benjamin Newhall Johnson - Wikipedia](https://en.wikipedia.org/wiki/Benjamin_Newhall_Johnson)

@@ -1,1 +1,0 @@
-﻿[Christian right - Wikipedia](https://en.wikipedia.org/wiki/Christian_right)

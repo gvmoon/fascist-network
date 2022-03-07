@@ -1,1 +1,0 @@
-﻿[James Roosevelt I - Wikipedia](https://en.wikipedia.org/wiki/James_Roosevelt_I)

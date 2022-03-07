@@ -1,1 +1,0 @@
-﻿[State Bank of Chicago - Wikipedia](https://en.wikipedia.org/wiki/State_Bank_of_Chicago)

@@ -1,1 +1,0 @@
-﻿[William P. Biddle - Wikipedia](https://en.wikipedia.org/wiki/William_P._Biddle)

@@ -1,1 +1,0 @@
-﻿[Chuck Baldwin - Wikipedia](https://en.wikipedia.org/wiki/Chuck_Baldwin)

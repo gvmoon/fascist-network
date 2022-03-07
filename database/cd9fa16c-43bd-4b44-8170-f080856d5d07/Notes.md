@@ -1,1 +1,0 @@
-﻿[Mark MacDonald (bishop) - Wikipedia](https://en.wikipedia.org/wiki/Mark_MacDonald_(bishop))

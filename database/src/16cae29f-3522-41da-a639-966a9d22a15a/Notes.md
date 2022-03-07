@@ -1,0 +1,1 @@
+﻿[Christine Todd Whitman - Wikipedia](https://en.wikipedia.org/wiki/Christine_Todd_Whitman)

@@ -1,0 +1,1 @@
+﻿[Elmer Robinson (meteorologist) - Wikipedia](https://en.wikipedia.org/wiki/Elmer_Robinson_(meteorologist))

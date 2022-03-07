@@ -1,1 +1,0 @@
-﻿[www.gentry-beach](https://www.gentry-beach.com/)

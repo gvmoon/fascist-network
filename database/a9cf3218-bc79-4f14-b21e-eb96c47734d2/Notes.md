@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/J._Paul_Austin

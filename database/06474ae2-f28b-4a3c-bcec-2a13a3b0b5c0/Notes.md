@@ -1,1 +1,0 @@
-﻿[Allen Newell - Wikipedia](https://en.wikipedia.org/wiki/Allen_Newell)

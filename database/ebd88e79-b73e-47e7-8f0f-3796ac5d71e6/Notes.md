@@ -1,1 +1,0 @@
-﻿[Mark E. Ferguson III - Wikipedia](https://en.wikipedia.org/wiki/Mark_E._Ferguson_III)

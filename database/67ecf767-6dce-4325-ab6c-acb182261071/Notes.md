@@ -1,1 +1,0 @@
-﻿[Walter Bedell Smith - Wikipedia](https://en.wikipedia.org/wiki/Walter_Bedell_Smith)

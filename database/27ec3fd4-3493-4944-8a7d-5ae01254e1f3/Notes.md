@@ -1,1 +1,0 @@
-﻿[Arnold Kerdijk - Wikipedia](https://nl.wikipedia.org/wiki/Arnold_Kerdijk)

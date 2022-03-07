@@ -1,1 +1,0 @@
-﻿[Solar deity - Wikipedia](https://en.wikipedia.org/wiki/Solar_deity)

@@ -1,1 +1,0 @@
-﻿[Stephen C. O'Connell - Wikipedia](https://en.wikipedia.org/wiki/Stephen_C._O%27Connell)

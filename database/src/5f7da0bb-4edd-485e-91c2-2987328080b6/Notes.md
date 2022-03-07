@@ -1,0 +1,1 @@
+﻿[Baruch Spinoza - Wikipedia](https://en.wikipedia.org/wiki/Baruch_Spinoza)

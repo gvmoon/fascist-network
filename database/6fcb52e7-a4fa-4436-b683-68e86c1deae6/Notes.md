@@ -1,1 +1,0 @@
-﻿[Daniel Sidney Warner - Wikipedia](https://en.wikipedia.org/wiki/Daniel_Sidney_Warner)

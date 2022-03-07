@@ -1,1 +1,0 @@
-﻿[Institute in Basic Life Principles - Wikipedia](https://en.wikipedia.org/wiki/Institute_in_Basic_Life_Principles)

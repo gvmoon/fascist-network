@@ -1,1 +1,0 @@
-﻿[Georgism - Wikipedia](https://en.wikipedia.org/wiki/Georgism)

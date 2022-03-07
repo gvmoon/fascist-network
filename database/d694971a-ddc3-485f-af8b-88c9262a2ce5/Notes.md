@@ -1,1 +1,0 @@
-﻿[Albert Wohlstetter - Wikipedia](https://en.wikipedia.org/wiki/Albert_Wohlstetter)

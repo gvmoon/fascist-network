@@ -1,1 +1,0 @@
-﻿[Sebastian Gorka - Wikipedia](https://en.wikipedia.org/wiki/Sebastian_Gorka)

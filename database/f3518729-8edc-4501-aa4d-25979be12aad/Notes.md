@@ -1,1 +1,0 @@
-﻿[Eugene Grace - Wikipedia](https://en.wikipedia.org/wiki/Eugene_Grace)

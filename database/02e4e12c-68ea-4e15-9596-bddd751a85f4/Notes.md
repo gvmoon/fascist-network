@@ -1,1 +1,0 @@
-﻿[Joe Rogan - Wikipedia](https://en.wikipedia.org/wiki/Joe_Rogan)

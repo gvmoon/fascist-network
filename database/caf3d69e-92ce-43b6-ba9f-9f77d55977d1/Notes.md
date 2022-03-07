@@ -1,1 +1,0 @@
-﻿[Robert Royal (author) - Wikipedia](https://en.wikipedia.org/wiki/Robert_Royal_(author))

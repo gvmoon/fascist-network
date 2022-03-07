@@ -1,0 +1,1 @@
+﻿[Oregon State University - Wikipedia](https://en.wikipedia.org/wiki/Oregon_State_University)

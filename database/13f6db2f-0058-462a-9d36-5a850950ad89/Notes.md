@@ -1,1 +1,0 @@
-﻿[Roosevelt family - Wikipedia](https://en.wikipedia.org/wiki/Roosevelt_family)

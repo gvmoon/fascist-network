@@ -1,1 +1,0 @@
-﻿[Charles Grandison Finney - Wikipedia](https://en.wikipedia.org/wiki/Charles_Grandison_Finney)

@@ -1,1 +1,0 @@
-﻿[Ordo Templi Orientis - Wikipedia](https://en.wikipedia.org/wiki/Ordo_Templi_Orientis)

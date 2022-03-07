@@ -1,0 +1,1 @@
+﻿[Antipodean Resistance - Wikipedia](https://en.wikipedia.org/wiki/Antipodean_Resistance)

@@ -1,1 +1,0 @@
-﻿[Richard A. Rowland - Wikipedia](https://en.wikipedia.org/wiki/Richard_A._Rowland)

@@ -1,0 +1,1 @@
+﻿[Howard Hendricks - Wikipedia](https://en.wikipedia.org/wiki/Howard_Hendricks)

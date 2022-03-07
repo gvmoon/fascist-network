@@ -1,1 +1,0 @@
-﻿[Jim Nicholson (Secretary of Veterans Affairs) - Wikipedia](https://en.wikipedia.org/wiki/Jim_Nicholson_(Secretary_of_Veterans_Affairs))

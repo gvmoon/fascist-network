@@ -1,0 +1,1 @@
+﻿[Tucker Carlson - Wikipedia](https://en.wikipedia.org/wiki/Tucker_Carlson)

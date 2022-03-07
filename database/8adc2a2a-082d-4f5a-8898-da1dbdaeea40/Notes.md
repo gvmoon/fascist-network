@@ -1,1 +1,0 @@
-﻿[Daily Chronicle - Wikipedia](https://en.wikipedia.org/wiki/Daily_Chronicle)

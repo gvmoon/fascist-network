@@ -1,0 +1,1 @@
+﻿[Hans-Ulrich Rudel - Wikipedia](https://en.wikipedia.org/wiki/Hans-Ulrich_Rudel)

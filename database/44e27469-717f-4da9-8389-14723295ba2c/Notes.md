@@ -1,1 +1,0 @@
-﻿[NSO Group - Wikipedia](https://en.wikipedia.org/wiki/NSO_Group#Foreign_offices_and_export_controls)

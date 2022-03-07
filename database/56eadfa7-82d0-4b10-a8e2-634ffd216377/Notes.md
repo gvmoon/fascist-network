@@ -1,1 +1,0 @@
-﻿[Harold Lindsell - Wikipedia](https://en.wikipedia.org/wiki/Harold_Lindsell)

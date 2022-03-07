@@ -1,1 +1,0 @@
-﻿[Andriy Parubiy - Wikipedia](https://en.wikipedia.org/wiki/Andriy_Parubiy)

@@ -1,0 +1,1 @@
+﻿[Gerald Burton Winrod - Wikipedia](https://en.wikipedia.org/wiki/Gerald_Burton_Winrod)

@@ -1,1 +1,0 @@
-﻿[Stanford Law School - Wikipedia](https://en.wikipedia.org/wiki/Stanford_Law_School)

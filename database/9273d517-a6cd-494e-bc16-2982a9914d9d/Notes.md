@@ -1,1 +1,0 @@
-﻿[Kevin O'Leary - Wikipedia](https://en.wikipedia.org/wiki/Kevin_O%27Leary)

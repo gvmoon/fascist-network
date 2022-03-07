@@ -1,1 +1,0 @@
-﻿[Amish - Wikipedia](https://en.wikipedia.org/wiki/Amish)

@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/University_of_Illinois_Chicago_School_of_Law

@@ -1,1 +1,0 @@
-﻿[Vince Gilligan - Wikipedia](https://en.wikipedia.org/wiki/Vince_Gilligan)

@@ -1,1 +1,0 @@
-﻿[Alpha Gamma Omega - Wikipedia](https://en.wikipedia.org/wiki/Alpha_Gamma_Omega)

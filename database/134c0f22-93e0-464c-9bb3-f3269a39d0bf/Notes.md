@@ -1,1 +1,0 @@
-﻿[Minister of Defence and Military Veterans - Wikipedia](https://en.wikipedia.org/wiki/Minister_of_Defence_and_Military_Veterans)

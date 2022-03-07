@@ -1,1 +1,0 @@
-﻿[Armenian Apostolic Church - Wikipedia](https://en.wikipedia.org/wiki/Armenian_Apostolic_Church)

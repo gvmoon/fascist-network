@@ -1,1 +1,0 @@
-﻿[Hugo Gernsback - Wikipedia](https://en.wikipedia.org/wiki/Hugo_Gernsback)

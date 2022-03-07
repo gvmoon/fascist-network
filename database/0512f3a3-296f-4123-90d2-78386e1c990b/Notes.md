@@ -1,1 +1,0 @@
-﻿[Cal Thomas - Wikipedia](https://en.wikipedia.org/wiki/Cal_Thomas)

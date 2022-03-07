@@ -1,1 +1,0 @@
-﻿[Theodor Curtius - Wikipedia](https://en.wikipedia.org/wiki/Theodor_Curtius)

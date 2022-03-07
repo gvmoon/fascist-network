@@ -1,1 +1,0 @@
-﻿[Anabaptism - Wikipedia](https://en.wikipedia.org/wiki/Anabaptism)

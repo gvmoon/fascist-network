@@ -1,1 +1,0 @@
-﻿[State Policy Network - Wikipedia](https://en.wikipedia.org/wiki/State_Policy_Network)

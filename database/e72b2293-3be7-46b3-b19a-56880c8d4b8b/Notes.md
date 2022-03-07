@@ -1,1 +1,0 @@
-﻿[Friedrich Heinrich Jacobi - Wikipedia](https://en.wikipedia.org/wiki/Friedrich_Heinrich_Jacobi)

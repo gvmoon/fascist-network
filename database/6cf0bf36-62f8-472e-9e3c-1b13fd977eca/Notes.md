@@ -1,1 +1,0 @@
-﻿[Dave Rubin - Wikipedia](https://en.wikipedia.org/wiki/Dave_Rubin)

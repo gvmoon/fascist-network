@@ -1,1 +1,0 @@
-﻿[New York State Department of State - Wikipedia](https://en.wikipedia.org/wiki/New_York_State_Department_of_State)

@@ -1,1 +1,0 @@
-﻿[Ann Veneman - Wikipedia](https://en.wikipedia.org/wiki/Ann_Veneman)

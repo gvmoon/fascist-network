@@ -1,1 +1,0 @@
-﻿[Military Intelligence Corps (United States Army) - Wikipedia](https://en.wikipedia.org/wiki/Military_Intelligence_Corps_(United_States_Army))

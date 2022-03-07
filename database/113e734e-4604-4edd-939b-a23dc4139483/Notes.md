@@ -1,1 +1,0 @@
-﻿[Fourth-generation warfare - Wikipedia](https://en.wikipedia.org/wiki/Fourth-generation_warfare)

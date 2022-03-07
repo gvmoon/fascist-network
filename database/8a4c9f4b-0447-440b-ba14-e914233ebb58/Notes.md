@@ -1,1 +1,0 @@
-﻿[Ludwig von Mises - Wikipedia](https://en.wikipedia.org/wiki/Ludwig_von_Mises)

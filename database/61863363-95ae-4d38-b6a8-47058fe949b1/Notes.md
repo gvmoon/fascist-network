@@ -1,1 +1,0 @@
-﻿[Nordic Resistance Movement - Wikipedia](https://en.wikipedia.org/wiki/Nordic_Resistance_Movement)

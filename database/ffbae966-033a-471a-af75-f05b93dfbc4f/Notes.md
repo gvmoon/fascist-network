@@ -1,1 +1,0 @@
-﻿[Google Calendar](https://calendar.google.com/)

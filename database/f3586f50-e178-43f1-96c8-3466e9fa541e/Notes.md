@@ -1,1 +1,0 @@
-﻿[Germanus V of Constantinople - Wikipedia](https://en.wikipedia.org/wiki/Germanus_V_of_Constantinople)

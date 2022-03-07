@@ -1,1 +1,0 @@
-﻿[Mary Pride - Wikipedia](https://en.wikipedia.org/wiki/Mary_Pride)

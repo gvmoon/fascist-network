@@ -1,1 +1,0 @@
-﻿[Ali Alexander - Wikipedia](https://en.wikipedia.org/wiki/Ali_Alexander)

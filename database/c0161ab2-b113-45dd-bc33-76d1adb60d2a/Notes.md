@@ -1,1 +1,0 @@
-﻿[William Rosenwald - Wikipedia](https://en.wikipedia.org/wiki/William_Rosenwald)

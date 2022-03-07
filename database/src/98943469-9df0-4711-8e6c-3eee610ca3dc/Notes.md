@@ -1,0 +1,7 @@
+﻿https://en.wikipedia.org/wiki/Hyrum_Smith
+
+
+|Born:|February 9, 1800|
+|Died:|June 27, 1844 (aged 44)|
+|Positions:|[Assistant President of the Church](https://en.wikipedia.org/wiki/Assistant_President_of_the_Church "Assistant President of the Church"), called by [Joseph Smith](https://en.wikipedia.org/wiki/Joseph_Smith "Joseph Smith"), January 24, 1841 – June 27, 1844{nl}[Latter Day Saint](https://en.wikipedia.org/wiki/Latter_Day_Saint "Latter Day Saint") [Apostle](https://en.wikipedia.org/wiki/Apostle_%28Latter_Day_Saints%29 "Apostle (Latter Day Saints)"), called by Joseph Smith, January 24, 1841 – June 27, 1844{nl}[2nd](https://en.wikipedia.org/wiki/Presiding_Patriarch#Chronology_of_the_Presiding_Patriarchs_of_The_Church_of_Jesus_Christ_of_Latter-day_Saints "Presiding Patriarch") [Presiding Patriarch](https://en.wikipedia.org/wiki/Presiding_Patriarch "Presiding Patriarch"), called by Joseph Smith, September 14, 1840 – June 27, 1844{nl}Second Counselor in the [First Presidency](https://en.wikipedia.org/wiki/First_Presidency "First Presidency"), called by Joseph Smith, November 7, 1837 – January 24, 1841{nl}Assistant Counselor in the First Presidency, called by Joseph Smith, September 3, 1837 – November 7, 1837|
+|Notes:|Brother of Joseph Smith|

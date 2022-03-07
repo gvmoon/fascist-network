@@ -1,1 +1,0 @@
-﻿[Traditionalist Worker Party - Wikipedia](https://en.wikipedia.org/wiki/Traditionalist_Worker_Party)

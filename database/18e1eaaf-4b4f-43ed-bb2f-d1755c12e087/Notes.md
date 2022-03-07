@@ -1,1 +1,0 @@
-﻿[Suzanne La Follette - Wikipedia](https://en.wikipedia.org/wiki/Suzanne_La_Follette)

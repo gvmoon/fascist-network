@@ -1,0 +1,1 @@
+﻿[Tony Evans (pastor) - Wikipedia](https://en.wikipedia.org/wiki/Tony_Evans_(pastor))

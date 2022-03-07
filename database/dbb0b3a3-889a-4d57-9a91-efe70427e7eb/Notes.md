@@ -1,1 +1,0 @@
-﻿[Methodist Church (USA) - Wikipedia](https://en.wikipedia.org/wiki/Methodist_Church_(USA))

@@ -1,1 +1,0 @@
-﻿[John Alden Dix - Wikipedia](https://en.wikipedia.org/wiki/John_Alden_Dix)

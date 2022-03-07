@@ -1,1 +1,0 @@
-﻿[Farrington Daniels - Wikipedia](https://en.wikipedia.org/wiki/Farrington_Daniels)

@@ -1,1 +1,0 @@
-﻿[Bank for International Settlements - Wikipedia](https://en.wikipedia.org/wiki/Bank_for_International_Settlements)

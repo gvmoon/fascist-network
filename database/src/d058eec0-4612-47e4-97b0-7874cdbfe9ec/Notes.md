@@ -1,0 +1,1 @@
+﻿[George Bernard Shaw - Wikipedia](https://en.wikipedia.org/wiki/George_Bernard_Shaw)

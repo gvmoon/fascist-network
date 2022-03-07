@@ -1,1 +1,0 @@
-﻿[John F. Kelly - Wikipedia](https://en.wikipedia.org/wiki/John_F._Kelly)

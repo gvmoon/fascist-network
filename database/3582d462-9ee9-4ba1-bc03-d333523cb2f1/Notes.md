@@ -1,1 +1,0 @@
-﻿[L. Ron Hubbard - Wikipedia](https://en.wikipedia.org/wiki/L._Ron_Hubbard)

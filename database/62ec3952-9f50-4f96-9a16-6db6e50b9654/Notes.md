@@ -1,1 +1,0 @@
-﻿[Frederick George Bromberg - Wikipedia](https://en.wikipedia.org/wiki/Frederick_George_Bromberg)

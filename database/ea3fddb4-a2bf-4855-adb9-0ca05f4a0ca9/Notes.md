@@ -1,1 +1,0 @@
-﻿[Yaroslav Stetsko - Wikipedia](https://en.wikipedia.org/wiki/Yaroslav_Stetsko)

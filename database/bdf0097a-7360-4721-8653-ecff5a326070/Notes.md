@@ -1,1 +1,0 @@
-﻿[Tulsi Gabbard - Wikipedia](https://en.wikipedia.org/wiki/Tulsi_Gabbard)

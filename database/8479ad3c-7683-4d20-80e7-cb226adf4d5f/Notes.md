@@ -1,1 +1,0 @@
-﻿[Charles G. Dawes - Wikipedia](https://en.wikipedia.org/wiki/Charles_G._Dawes)

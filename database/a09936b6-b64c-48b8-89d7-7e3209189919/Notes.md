@@ -1,1 +1,0 @@
-﻿[Mark Kelly - Wikipedia](https://en.wikipedia.org/wiki/Mark_Kelly)

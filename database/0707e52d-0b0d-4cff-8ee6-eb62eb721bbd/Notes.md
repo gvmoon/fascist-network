@@ -1,1 +1,0 @@
-﻿[Harald V of Norway - Wikipedia](https://en.wikipedia.org/wiki/Harald_V_of_Norway)

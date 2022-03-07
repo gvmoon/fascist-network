@@ -1,1 +1,0 @@
-﻿[Donald Trump 2016 presidential campaign - Wikipedia](https://en.wikipedia.org/wiki/Donald_Trump_2016_presidential_campaign)

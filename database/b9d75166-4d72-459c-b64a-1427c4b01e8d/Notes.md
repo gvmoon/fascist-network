@@ -1,1 +1,0 @@
-﻿[Naval Ravikant - Wikipedia](https://en.wikipedia.org/wiki/Naval_Ravikant)

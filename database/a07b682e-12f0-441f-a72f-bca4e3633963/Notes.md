@@ -1,1 +1,0 @@
-﻿[Political philosophy - Wikipedia](https://en.wikipedia.org/wiki/Political_philosophy)

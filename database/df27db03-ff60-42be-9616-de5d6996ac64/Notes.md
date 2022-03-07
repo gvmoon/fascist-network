@@ -1,1 +1,0 @@
-﻿[Jim Nussle - Wikipedia](https://en.wikipedia.org/wiki/Jim_Nussle)

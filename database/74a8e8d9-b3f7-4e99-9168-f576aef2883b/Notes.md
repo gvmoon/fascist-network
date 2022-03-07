@@ -1,1 +1,0 @@
-﻿[Jimmy Walker - Wikipedia](https://en.wikipedia.org/wiki/Jimmy_Walker)

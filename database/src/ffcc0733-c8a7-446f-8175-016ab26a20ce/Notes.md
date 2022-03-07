@@ -1,0 +1,1 @@
+﻿[Joseph Smith Sr. - Wikipedia](https://en.wikipedia.org/wiki/Joseph_Smith_Sr.)

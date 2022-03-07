@@ -1,1 +1,0 @@
-﻿[Society of Jesus - Wikipedia](https://en.wikipedia.org/wiki/Society_of_Jesus)

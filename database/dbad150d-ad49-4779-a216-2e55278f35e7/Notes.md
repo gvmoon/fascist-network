@@ -1,1 +1,0 @@
-﻿[John W. Hill - Wikipedia](https://en.wikipedia.org/wiki/John_W._Hill)

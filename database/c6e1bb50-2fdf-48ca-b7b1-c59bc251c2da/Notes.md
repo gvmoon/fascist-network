@@ -1,1 +1,0 @@
-﻿[Ádám Politzer - Wikipedia](https://en.wikipedia.org/wiki/%C3%81d%C3%A1m_Politzer)

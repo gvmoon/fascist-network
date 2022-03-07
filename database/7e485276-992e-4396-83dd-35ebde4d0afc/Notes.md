@@ -1,1 +1,0 @@
-﻿[Elizabeth Peabody - Wikipedia](https://en.wikipedia.org/wiki/Elizabeth_Peabody)

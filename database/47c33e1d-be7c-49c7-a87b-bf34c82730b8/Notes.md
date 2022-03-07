@@ -1,1 +1,0 @@
-﻿[James Gamble (industrialist) - Wikipedia](https://en.wikipedia.org/wiki/James_Gamble_(industrialist))

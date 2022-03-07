@@ -1,0 +1,1 @@
+﻿[Richard Waldinger - Wikipedia](https://en.wikipedia.org/wiki/Richard_Waldinger)

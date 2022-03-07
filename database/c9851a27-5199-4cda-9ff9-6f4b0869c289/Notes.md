@@ -1,1 +1,0 @@
-﻿[Samuel T. Cohen - Wikipedia](https://en.wikipedia.org/wiki/Samuel_T._Cohen)

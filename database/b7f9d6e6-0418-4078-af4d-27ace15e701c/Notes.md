@@ -1,1 +1,0 @@
-﻿[Olympia Snowe - Wikipedia](https://en.wikipedia.org/wiki/Olympia_Snowe)

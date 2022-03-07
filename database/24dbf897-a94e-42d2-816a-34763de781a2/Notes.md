@@ -1,1 +1,0 @@
-﻿[American Society of Mechanical Engineers - Wikipedia](https://en.wikipedia.org/wiki/American_Society_of_Mechanical_Engineers)

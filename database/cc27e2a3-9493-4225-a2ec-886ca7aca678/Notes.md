@@ -1,1 +1,0 @@
-﻿[Albert Einstein - Wikipedia](https://en.wikipedia.org/wiki/Albert_Einstein)

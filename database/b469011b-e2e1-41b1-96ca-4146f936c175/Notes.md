@@ -1,1 +1,0 @@
-﻿[Creflo Dollar - Wikipedia](https://en.wikipedia.org/wiki/Creflo_Dollar)

@@ -1,1 +1,0 @@
-﻿[William P. Rogers - Wikipedia](https://en.wikipedia.org/wiki/William_P._Rogers)

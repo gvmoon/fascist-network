@@ -1,1 +1,0 @@
-﻿[Rex Tillerson - Wikipedia](https://en.wikipedia.org/wiki/Rex_Tillerson)

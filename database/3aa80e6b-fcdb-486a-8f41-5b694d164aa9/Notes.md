@@ -1,1 +1,0 @@
-﻿[Gordon Brown - Wikipedia](https://en.wikipedia.org/wiki/Gordon_Brown)

@@ -1,1 +1,0 @@
-﻿[Die Welt - Wikipedia](https://en.wikipedia.org/wiki/Die_Welt)

@@ -1,0 +1,1 @@
+﻿[David Carr (journalist) - Wikipedia](https://en.wikipedia.org/wiki/David_Carr_(journalist))

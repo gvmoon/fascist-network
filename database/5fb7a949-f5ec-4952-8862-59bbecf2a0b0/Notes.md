@@ -1,1 +1,0 @@
-﻿[Charles A. Halleck - Wikipedia](https://en.wikipedia.org/wiki/Charles_A._Halleck)

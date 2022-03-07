@@ -1,1 +1,0 @@
-﻿[Emil Georg von Stauss - Wikipedia](https://en.wikipedia.org/wiki/Emil_Georg_von_Stauss)

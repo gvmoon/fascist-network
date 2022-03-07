@@ -1,1 +1,0 @@
-﻿[Adolf Windaus - Wikipedia](https://en.wikipedia.org/wiki/Adolf_Windaus)

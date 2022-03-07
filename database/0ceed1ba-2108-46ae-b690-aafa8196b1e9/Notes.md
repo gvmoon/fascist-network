@@ -1,1 +1,0 @@
-﻿[Mitch Daniels - Wikipedia](https://en.wikipedia.org/wiki/Mitch_Daniels)

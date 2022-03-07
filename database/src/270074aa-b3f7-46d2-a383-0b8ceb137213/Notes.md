@@ -1,0 +1,1 @@
+﻿[Vladimir Lenin - Wikipedia](https://en.wikipedia.org/wiki/Vladimir_Lenin)

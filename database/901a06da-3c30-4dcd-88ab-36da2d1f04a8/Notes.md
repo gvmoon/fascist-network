@@ -1,1 +1,0 @@
-﻿[Talbot School of Theology - Wikipedia](https://en.wikipedia.org/wiki/Talbot_School_of_Theology)

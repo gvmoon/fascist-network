@@ -1,1 +1,0 @@
-﻿[Jim Lehrer - Wikipedia](https://en.wikipedia.org/wiki/Jim_Lehrer)

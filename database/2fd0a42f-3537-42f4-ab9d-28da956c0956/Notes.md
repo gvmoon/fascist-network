@@ -1,1 +1,0 @@
-﻿[McKinsey & Company - Wikipedia](https://en.wikipedia.org/wiki/McKinsey_%26_Company)

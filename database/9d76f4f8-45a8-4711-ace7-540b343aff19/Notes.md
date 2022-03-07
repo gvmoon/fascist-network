@@ -1,1 +1,0 @@
-﻿[Committee of 300 - Wikipedia](https://en.wikipedia.org/wiki/Committee_of_300)

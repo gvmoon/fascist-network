@@ -1,1 +1,0 @@
-﻿[Charles Hoskinson - Wikipedia](https://en.wikipedia.org/wiki/Charles_Hoskinson)

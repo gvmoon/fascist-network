@@ -1,1 +1,0 @@
-﻿[Claus von Bülow - Wikipedia](https://en.wikipedia.org/wiki/Claus_von_B%C3%BClow)

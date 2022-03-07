@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/G%C3%A9rard_Encausse

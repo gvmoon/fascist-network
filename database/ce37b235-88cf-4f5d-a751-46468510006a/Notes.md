@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/William_of_Chartres_(Templar)

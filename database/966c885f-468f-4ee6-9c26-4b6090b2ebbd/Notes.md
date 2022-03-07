@@ -1,1 +1,0 @@
-﻿[Ashkenazi Hasidim - Wikipedia](https://en.wikipedia.org/wiki/Ashkenazi_Hasidim)

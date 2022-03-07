@@ -1,0 +1,1 @@
+﻿[Tabor College (Kansas) - Wikipedia](https://en.wikipedia.org/wiki/Tabor_College_(Kansas))

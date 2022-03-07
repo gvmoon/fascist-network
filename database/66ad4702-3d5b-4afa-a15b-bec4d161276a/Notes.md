@@ -1,1 +1,0 @@
-﻿[Newcomen Society - Wikipedia](https://en.wikipedia.org/wiki/Newcomen_Society)

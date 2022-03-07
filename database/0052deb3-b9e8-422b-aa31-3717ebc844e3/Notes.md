@@ -1,1 +1,0 @@
-﻿[DeWitt Wallace - Wikipedia](https://en.wikipedia.org/wiki/DeWitt_Wallace)

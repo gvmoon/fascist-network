@@ -1,1 +1,0 @@
-﻿[Westminster School - Wikipedia](https://en.wikipedia.org/wiki/Westminster_School)

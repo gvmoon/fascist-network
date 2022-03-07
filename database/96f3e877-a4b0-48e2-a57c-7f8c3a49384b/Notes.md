@@ -1,1 +1,0 @@
-﻿[Waxey Gordon - Wikipedia](https://en.wikipedia.org/wiki/Waxey_Gordon)

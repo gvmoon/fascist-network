@@ -1,1 +1,0 @@
-﻿[Roscoe H. Hillenkoetter - Wikipedia](https://en.wikipedia.org/wiki/Roscoe_H._Hillenkoetter)

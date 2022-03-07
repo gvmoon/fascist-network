@@ -1,1 +1,0 @@
-﻿[Charismatic Christianity - Wikipedia](https://en.wikipedia.org/wiki/Charismatic_Christianity)

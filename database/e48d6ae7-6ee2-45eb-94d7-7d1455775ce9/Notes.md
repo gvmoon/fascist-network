@@ -1,1 +1,0 @@
-﻿[Oskar Morgenstern - Wikipedia](https://en.wikipedia.org/wiki/Oskar_Morgenstern)

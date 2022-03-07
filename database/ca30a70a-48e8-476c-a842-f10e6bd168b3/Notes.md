@@ -1,1 +1,0 @@
-﻿[International Association of Baptist Colleges and Universities - Wikipedia](https://en.wikipedia.org/wiki/International_Association_of_Baptist_Colleges_and_Universities)

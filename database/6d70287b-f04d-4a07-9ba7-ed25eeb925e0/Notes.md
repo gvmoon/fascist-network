@@ -1,1 +1,0 @@
-﻿[John Rawlings Rees - Wikipedia](https://en.wikipedia.org/wiki/John_Rawlings_Rees)

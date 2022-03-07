@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/S._U._Zuidema

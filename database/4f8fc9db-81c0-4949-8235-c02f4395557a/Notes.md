@@ -1,1 +1,0 @@
-﻿[Adolph Wagner - Wikipedia](https://en.wikipedia.org/wiki/Adolph_Wagner)

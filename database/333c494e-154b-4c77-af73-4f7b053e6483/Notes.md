@@ -1,1 +1,0 @@
-﻿[Claremont McKenna College - Wikipedia](https://en.wikipedia.org/wiki/Claremont_McKenna_College)

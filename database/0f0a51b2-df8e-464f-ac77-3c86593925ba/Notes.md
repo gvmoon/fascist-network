@@ -1,1 +1,0 @@
-﻿[Julia Child - Wikipedia](https://en.wikipedia.org/wiki/Julia_Child)

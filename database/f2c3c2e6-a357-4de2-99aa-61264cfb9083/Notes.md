@@ -1,1 +1,0 @@
-﻿[Richard Evelyn Byrd Sr. - Wikipedia](https://en.wikipedia.org/wiki/Richard_Evelyn_Byrd_Sr.)

@@ -1,1 +1,0 @@
-﻿[Kayleigh McEnany - Wikipedia](https://en.wikipedia.org/wiki/Kayleigh_McEnany)

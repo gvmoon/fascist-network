@@ -1,1 +1,0 @@
-﻿[Wesleyan theology - Wikipedia](https://en.wikipedia.org/wiki/Wesleyan_theology)

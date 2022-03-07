@@ -1,1 +1,0 @@
-﻿[Robert Waring Stoddard - Wikipedia](https://en.wikipedia.org/wiki/Robert_Waring_Stoddard)

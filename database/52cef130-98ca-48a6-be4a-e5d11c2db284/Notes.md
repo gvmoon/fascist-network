@@ -1,1 +1,0 @@
-﻿[Inner Temple - Wikipedia](https://en.wikipedia.org/wiki/Inner_Temple)

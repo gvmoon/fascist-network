@@ -1,1 +1,0 @@
-﻿[Edwin G. Booz - Wikipedia](https://en.wikipedia.org/wiki/Edwin_G._Booz)

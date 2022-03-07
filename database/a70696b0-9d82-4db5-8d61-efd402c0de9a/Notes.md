@@ -1,1 +1,0 @@
-﻿[Mennonite Church USA - Wikipedia](https://en.wikipedia.org/wiki/Mennonite_Church_USA)

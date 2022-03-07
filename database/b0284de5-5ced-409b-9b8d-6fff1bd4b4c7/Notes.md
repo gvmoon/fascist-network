@@ -1,1 +1,0 @@
-﻿[Charles Edward Merriam - Wikipedia](https://en.wikipedia.org/wiki/Charles_Edward_Merriam)

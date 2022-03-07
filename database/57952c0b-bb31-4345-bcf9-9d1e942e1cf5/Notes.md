@@ -1,1 +1,0 @@
-﻿[Sergei Magnitsky - Wikipedia](https://en.wikipedia.org/wiki/Sergei_Magnitsky)

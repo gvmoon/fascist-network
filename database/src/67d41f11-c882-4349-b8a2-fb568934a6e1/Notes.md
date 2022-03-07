@@ -1,0 +1,1 @@
+﻿[Social-National Party of Ukraine - Wikipedia](https://en.wikipedia.org/wiki/Social-National_Party_of_Ukraine)

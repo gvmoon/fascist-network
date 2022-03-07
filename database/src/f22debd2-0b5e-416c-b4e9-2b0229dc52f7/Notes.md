@@ -1,0 +1,1 @@
+﻿[Columbia Law School - Wikipedia](https://en.wikipedia.org/wiki/Columbia_Law_School)

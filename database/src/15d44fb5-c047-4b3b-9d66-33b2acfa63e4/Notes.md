@@ -1,0 +1,1 @@
+﻿[Trinity College, Cambridge - Wikipedia](https://en.wikipedia.org/wiki/Trinity_College,_Cambridge)

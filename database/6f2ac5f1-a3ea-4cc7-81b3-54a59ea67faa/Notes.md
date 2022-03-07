@@ -1,1 +1,0 @@
-﻿[Hale Boggs - Wikipedia](https://en.wikipedia.org/wiki/Hale_Boggs)

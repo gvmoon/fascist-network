@@ -1,0 +1,1 @@
+﻿[Space Delta 7 - Wikipedia](https://en.wikipedia.org/wiki/Space_Delta_7)

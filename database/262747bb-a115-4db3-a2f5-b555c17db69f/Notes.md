@@ -1,1 +1,0 @@
-﻿[Manhattan Project - Wikipedia](https://en.wikipedia.org/wiki/Manhattan_Project)

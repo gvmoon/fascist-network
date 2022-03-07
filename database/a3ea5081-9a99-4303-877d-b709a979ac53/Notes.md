@@ -1,1 +1,0 @@
-﻿[Methodist Episcopal Church - Wikipedia](https://en.wikipedia.org/wiki/Methodist_Episcopal_Church)

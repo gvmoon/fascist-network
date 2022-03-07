@@ -1,1 +1,0 @@
-﻿[Trinity Forum - Wikipedia](https://en.wikipedia.org/wiki/Trinity_Forum)

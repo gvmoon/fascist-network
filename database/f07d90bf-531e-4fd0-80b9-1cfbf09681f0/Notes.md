@@ -1,1 +1,0 @@
-﻿[John E. Rankin - Wikipedia](https://en.wikipedia.org/wiki/John_E._Rankin)

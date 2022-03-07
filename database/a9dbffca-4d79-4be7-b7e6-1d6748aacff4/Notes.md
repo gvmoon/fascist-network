@@ -1,1 +1,0 @@
-﻿[Occupy Wall Street - Wikipedia](https://en.wikipedia.org/wiki/Occupy_Wall_Street)

@@ -1,1 +1,0 @@
-﻿[Semion Mogilevich - Wikipedia](https://en.wikipedia.org/wiki/Semion_Mogilevich)

@@ -1,1 +1,0 @@
-﻿[Jack Kemp - Wikipedia](https://en.wikipedia.org/wiki/Jack_Kemp)

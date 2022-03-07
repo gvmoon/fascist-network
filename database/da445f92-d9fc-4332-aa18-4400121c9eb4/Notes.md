@@ -1,1 +1,0 @@
-﻿[United States Department of State - Wikipedia](https://en.wikipedia.org/wiki/United_States_Department_of_State)

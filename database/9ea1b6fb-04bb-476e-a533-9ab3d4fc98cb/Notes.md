@@ -1,1 +1,0 @@
-﻿[Cambridge Rindge and Latin School - Wikipedia](https://en.wikipedia.org/wiki/Cambridge_Rindge_and_Latin_School)

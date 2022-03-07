@@ -1,1 +1,0 @@
-﻿[Fritz Haber - Wikipedia](https://en.wikipedia.org/wiki/Fritz_Haber)

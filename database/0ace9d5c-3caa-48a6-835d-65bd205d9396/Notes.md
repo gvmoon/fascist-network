@@ -1,1 +1,0 @@
-﻿[Walter Knott - Wikipedia](https://en.wikipedia.org/wiki/Walter_Knott)

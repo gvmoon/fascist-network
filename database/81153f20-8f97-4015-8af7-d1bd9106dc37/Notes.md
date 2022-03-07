@@ -1,1 +1,0 @@
-﻿[Richard Darman - Wikipedia](https://en.wikipedia.org/wiki/Richard_Darman)

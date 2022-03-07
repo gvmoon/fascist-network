@@ -1,1 +1,0 @@
-﻿[Schwenkfelder Church - Wikipedia](https://en.wikipedia.org/wiki/Schwenkfelder_Church)

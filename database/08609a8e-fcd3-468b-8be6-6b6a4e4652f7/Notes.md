@@ -1,1 +1,0 @@
-﻿[Edmund Randolph - Wikipedia](https://en.wikipedia.org/wiki/Edmund_Randolph)

@@ -1,1 +1,0 @@
-﻿[United States Naval Academy - Wikipedia](https://en.wikipedia.org/wiki/United_States_Naval_Academy)

@@ -1,1 +1,0 @@
-﻿[United States Chamber of Commerce - Wikipedia](https://en.wikipedia.org/wiki/United_States_Chamber_of_Commerce)

@@ -1,1 +1,0 @@
-﻿[Rollin B. Sanford - Wikipedia](https://en.wikipedia.org/wiki/Rollin_B._Sanford)

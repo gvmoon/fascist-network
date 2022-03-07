@@ -1,1 +1,0 @@
-﻿[World Union of National Socialists - Wikipedia](https://en.wikipedia.org/wiki/World_Union_of_National_Socialists)

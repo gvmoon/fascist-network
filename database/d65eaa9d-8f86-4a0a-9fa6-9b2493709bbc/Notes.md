@@ -1,1 +1,0 @@
-﻿[Abbé Faria - Wikipedia](https://en.wikipedia.org/wiki/Abb%C3%A9_Faria)

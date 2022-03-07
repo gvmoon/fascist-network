@@ -1,1 +1,0 @@
-﻿[Aspen Institute - Wikipedia](https://en.wikipedia.org/wiki/Aspen_Institute)

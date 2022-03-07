@@ -1,1 +1,0 @@
-﻿[H. L. Hunt - Wikipedia](https://en.wikipedia.org/wiki/H._L._Hunt)

@@ -1,1 +1,0 @@
-﻿[Ku Klux Klan - Wikipedia](https://en.wikipedia.org/wiki/Ku_Klux_Klan)

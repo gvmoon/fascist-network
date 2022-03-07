@@ -1,1 +1,0 @@
-﻿[Tim Pool - Wikipedia](https://en.wikipedia.org/wiki/Tim_Pool)

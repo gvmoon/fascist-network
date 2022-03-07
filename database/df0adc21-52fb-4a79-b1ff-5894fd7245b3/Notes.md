@@ -1,1 +1,0 @@
-﻿[Signet Society - Wikipedia](https://en.wikipedia.org/wiki/Signet_Society)

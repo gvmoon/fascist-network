@@ -1,2 +1,0 @@
-﻿[Federal government of the United States - Wikipedia](https://en.wikipedia.org/wiki/Federal_government_of_the_United_States)
-[State governments of the United States - Wikipedia](https://en.wikipedia.org/wiki/State_governments_of_the_United_States)

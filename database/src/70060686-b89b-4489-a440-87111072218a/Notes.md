@@ -1,0 +1,1 @@
+﻿[Suprematism - Wikipedia](https://en.wikipedia.org/wiki/Suprematism)

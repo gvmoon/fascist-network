@@ -1,1 +1,0 @@
-﻿[Ivy League - Wikipedia](https://en.wikipedia.org/wiki/Ivy_League)

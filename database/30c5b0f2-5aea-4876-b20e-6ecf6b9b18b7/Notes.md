@@ -1,1 +1,0 @@
-﻿[House Un-American Activities Committee - Wikipedia](https://en.wikipedia.org/wiki/House_Un-American_Activities_Committee)

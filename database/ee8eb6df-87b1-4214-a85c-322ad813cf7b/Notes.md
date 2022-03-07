@@ -1,1 +1,0 @@
-﻿[Brett Kavanaugh - Wikipedia](https://en.wikipedia.org/wiki/Brett_Kavanaugh)

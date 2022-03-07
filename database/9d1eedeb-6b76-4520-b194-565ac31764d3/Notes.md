@@ -1,1 +1,0 @@
-﻿[Blood & Honour - Wikipedia](https://en.wikipedia.org/wiki/Blood_%26_Honour)

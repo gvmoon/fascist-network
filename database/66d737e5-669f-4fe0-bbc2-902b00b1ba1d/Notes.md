@@ -1,1 +1,0 @@
-﻿[University of Dillingen - Wikipedia](https://en.wikipedia.org/wiki/University_of_Dillingen)

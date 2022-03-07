@@ -1,1 +1,0 @@
-﻿[Don Nickles - Wikipedia](https://en.wikipedia.org/wiki/Don_Nickles)

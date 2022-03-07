@@ -1,1 +1,0 @@
-﻿[Harvard Kennedy School - Wikipedia](https://en.wikipedia.org/wiki/Harvard_Kennedy_School)

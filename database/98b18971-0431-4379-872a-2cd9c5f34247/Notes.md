@@ -1,1 +1,0 @@
-﻿[Christopher B. Howard - Wikipedia](https://en.wikipedia.org/wiki/Christopher_B._Howard)

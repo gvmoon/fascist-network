@@ -1,1 +1,0 @@
-﻿[Christian Voice (United States) - Wikipedia](https://en.wikipedia.org/wiki/Christian_Voice_(United_States))

@@ -1,1 +1,0 @@
-﻿[Nicolaus Zinzendorf - Wikipedia](https://en.wikipedia.org/wiki/Nicolaus_Zinzendorf)

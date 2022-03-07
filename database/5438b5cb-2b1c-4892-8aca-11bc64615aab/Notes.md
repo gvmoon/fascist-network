@@ -1,1 +1,0 @@
-﻿[William F. Talbot - Wikipedia](https://en.wikipedia.org/wiki/William_F._Talbot)

@@ -1,1 +1,0 @@
-﻿[French Resistance - Wikipedia](https://en.wikipedia.org/wiki/French_Resistance)

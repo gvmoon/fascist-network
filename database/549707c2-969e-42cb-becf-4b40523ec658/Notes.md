@@ -1,1 +1,0 @@
-﻿[Jarvis Street Baptist Church - Wikipedia](https://en.wikipedia.org/wiki/Jarvis_Street_Baptist_Church)

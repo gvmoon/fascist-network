@@ -1,1 +1,0 @@
-﻿[Wayne Mixson - Wikipedia](https://en.wikipedia.org/wiki/Wayne_Mixson)

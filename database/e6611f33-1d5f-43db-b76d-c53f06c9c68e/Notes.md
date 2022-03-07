@@ -1,1 +1,0 @@
-﻿[Albany Law School - Wikipedia](https://en.wikipedia.org/wiki/Albany_Law_School)

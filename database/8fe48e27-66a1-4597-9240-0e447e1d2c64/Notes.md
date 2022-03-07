@@ -1,1 +1,0 @@
-﻿[Korczak Ziolkowski - Wikipedia](https://en.wikipedia.org/wiki/Korczak_Ziolkowski)

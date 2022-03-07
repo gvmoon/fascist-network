@@ -1,0 +1,1 @@
+﻿[Sidney Powell - Wikipedia](https://en.wikipedia.org/wiki/Sidney_Powell)

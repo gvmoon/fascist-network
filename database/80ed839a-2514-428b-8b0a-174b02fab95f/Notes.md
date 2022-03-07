@@ -1,1 +1,0 @@
-﻿[London School of Economics - Wikipedia](https://en.wikipedia.org/wiki/London_School_of_Economics)

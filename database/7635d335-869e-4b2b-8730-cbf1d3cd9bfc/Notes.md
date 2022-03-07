@@ -1,1 +1,0 @@
-﻿[Lyndon B. Johnson - Wikipedia](https://en.wikipedia.org/wiki/Lyndon_B._Johnson)

@@ -1,1 +1,0 @@
-﻿[Daniel Webster - Wikipedia](https://en.wikipedia.org/wiki/Daniel_Webster)

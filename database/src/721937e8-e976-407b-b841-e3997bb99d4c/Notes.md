@@ -1,0 +1,1 @@
+﻿[O. J. Simpson - Wikipedia](https://en.wikipedia.org/wiki/O._J._Simpson)

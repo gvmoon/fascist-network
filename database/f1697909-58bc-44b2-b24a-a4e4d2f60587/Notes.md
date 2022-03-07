@@ -1,1 +1,0 @@
-﻿[National Alliance (United States) - Wikipedia](https://en.wikipedia.org/wiki/National_Alliance_(United_States))

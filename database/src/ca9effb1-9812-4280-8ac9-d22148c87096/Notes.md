@@ -1,0 +1,1 @@
+﻿[New York State Senate - Wikipedia](https://en.wikipedia.org/wiki/New_York_State_Senate)

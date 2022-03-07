@@ -1,1 +1,0 @@
-﻿[Dean Cannon - Wikipedia](https://en.wikipedia.org/wiki/Dean_Cannon)

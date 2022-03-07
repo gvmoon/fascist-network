@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/James_J._Davis

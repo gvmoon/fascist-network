@@ -1,1 +1,0 @@
-﻿[Jack MacArthur - Wikipedia](https://en.wikipedia.org/wiki/Jack_MacArthur)

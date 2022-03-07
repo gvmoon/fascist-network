@@ -1,0 +1,1 @@
+﻿[Arizona Christian University - Wikipedia](https://en.wikipedia.org/wiki/Arizona_Christian_University)

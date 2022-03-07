@@ -1,1 +1,0 @@
-﻿[Patrick Frawley - Wikipedia](https://en.wikipedia.org/wiki/Patrick_Frawley)

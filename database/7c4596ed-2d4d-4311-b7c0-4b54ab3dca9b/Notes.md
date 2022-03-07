@@ -1,1 +1,0 @@
-﻿[Thomas R. Pickering - Wikipedia](https://en.wikipedia.org/wiki/Thomas_R._Pickering)

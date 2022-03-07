@@ -1,1 +1,0 @@
-﻿[Panagiotis Kondylis - Wikipedia](https://en.wikipedia.org/wiki/Panagiotis_Kondylis)

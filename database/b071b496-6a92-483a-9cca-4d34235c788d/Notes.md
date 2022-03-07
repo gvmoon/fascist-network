@@ -1,1 +1,0 @@
-﻿[University of Chicago Institute of Politics - Wikipedia](https://en.wikipedia.org/wiki/University_of_Chicago_Institute_of_Politics)

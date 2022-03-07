@@ -1,1 +1,0 @@
-﻿[Lyndon LaRouche - Wikipedia](https://en.wikipedia.org/wiki/Lyndon_LaRouche)

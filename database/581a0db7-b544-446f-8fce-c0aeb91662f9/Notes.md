@@ -1,1 +1,0 @@
-﻿[Sports Illustrated - Wikipedia](https://en.wikipedia.org/wiki/Sports_Illustrated)

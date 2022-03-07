@@ -1,1 +1,0 @@
-﻿[Guy Standing (actor) - Wikipedia](https://en.wikipedia.org/wiki/Guy_Standing_(actor))

@@ -1,1 +1,0 @@
-﻿[Joseph de Maistre - Wikipedia](https://en.wikipedia.org/wiki/Joseph_de_Maistre)

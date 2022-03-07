@@ -1,1 +1,0 @@
-﻿[Jeff Rulifson - Wikipedia](https://en.wikipedia.org/wiki/Jeff_Rulifson)

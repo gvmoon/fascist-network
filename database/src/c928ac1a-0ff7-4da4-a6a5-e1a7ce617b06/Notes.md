@@ -1,0 +1,1 @@
+﻿[Charles Taylor (philosopher) - Wikipedia](https://en.wikipedia.org/wiki/Charles_Taylor_(philosopher))

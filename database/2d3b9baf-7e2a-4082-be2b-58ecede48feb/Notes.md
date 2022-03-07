@@ -1,1 +1,0 @@
-﻿[Joseph A. Scranton - Wikipedia](https://en.wikipedia.org/wiki/Joseph_A._Scranton)

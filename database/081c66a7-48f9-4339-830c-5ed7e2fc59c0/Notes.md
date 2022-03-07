@@ -1,1 +1,0 @@
-﻿[Ed Derwinski - Wikipedia](https://en.wikipedia.org/wiki/Ed_Derwinski)

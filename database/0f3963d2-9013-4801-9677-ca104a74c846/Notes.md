@@ -1,1 +1,0 @@
-﻿[Richard Mead - Wikipedia](https://en.wikipedia.org/wiki/Richard_Mead)

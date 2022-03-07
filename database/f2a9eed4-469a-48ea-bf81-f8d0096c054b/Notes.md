@@ -1,1 +1,0 @@
-﻿[Arthur Schopenhauer - Wikipedia](https://en.wikipedia.org/wiki/Arthur_Schopenhauer)

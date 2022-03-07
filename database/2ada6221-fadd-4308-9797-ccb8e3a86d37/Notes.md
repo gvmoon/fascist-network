@@ -1,1 +1,0 @@
-﻿[Jim Bob Duggar - Wikipedia](https://en.wikipedia.org/wiki/Jim_Bob_Duggar)

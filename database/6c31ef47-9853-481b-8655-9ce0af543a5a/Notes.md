@@ -1,1 +1,0 @@
-﻿[Count of St. Germain - Wikipedia](https://en.wikipedia.org/wiki/Count_of_St._Germain)

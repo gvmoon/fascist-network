@@ -1,1 +1,0 @@
-﻿[University of Virginia School of Law - Wikipedia](https://en.wikipedia.org/wiki/University_of_Virginia_School_of_Law)

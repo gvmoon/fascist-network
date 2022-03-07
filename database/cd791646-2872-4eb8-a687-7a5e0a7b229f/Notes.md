@@ -1,1 +1,0 @@
-﻿[Edward VII - Wikipedia](https://en.wikipedia.org/wiki/Edward_VII)

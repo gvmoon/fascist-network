@@ -1,1 +1,0 @@
-﻿[Otto Skorzeny - Wikipedia](https://en.wikipedia.org/wiki/Otto_Skorzeny)

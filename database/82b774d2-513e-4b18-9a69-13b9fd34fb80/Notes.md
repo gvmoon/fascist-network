@@ -1,1 +1,0 @@
-﻿[Thomas A. Roe - Wikipedia](https://en.wikipedia.org/wiki/Thomas_A._Roe)

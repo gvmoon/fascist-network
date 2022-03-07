@@ -1,1 +1,0 @@
-﻿[Free Congress Research and Education Foundation - Wikipedia](https://en.wikipedia.org/wiki/Free_Congress_Research_and_Education_Foundation)

@@ -1,1 +1,0 @@
-﻿[Alvin York - Wikipedia](https://en.wikipedia.org/wiki/Alvin_York)

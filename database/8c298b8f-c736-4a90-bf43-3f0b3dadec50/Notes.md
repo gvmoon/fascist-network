@@ -1,1 +1,0 @@
-﻿[International Red Cross and Red Crescent Movement - Wikipedia](https://en.wikipedia.org/wiki/International_Red_Cross_and_Red_Crescent_Movement)

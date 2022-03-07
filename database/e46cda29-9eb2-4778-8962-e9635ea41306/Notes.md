@@ -1,1 +1,0 @@
-﻿[Procter & Gamble - Wikipedia](https://en.wikipedia.org/wiki/Procter_%26_Gamble)

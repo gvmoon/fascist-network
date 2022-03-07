@@ -1,0 +1,1 @@
+﻿[Giambattista Vico - Wikipedia](https://en.wikipedia.org/wiki/Giambattista_Vico)

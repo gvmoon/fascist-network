@@ -1,1 +1,0 @@
-﻿[Walter Ralston Martin - Wikipedia](https://en.wikipedia.org/wiki/Walter_Ralston_Martin)

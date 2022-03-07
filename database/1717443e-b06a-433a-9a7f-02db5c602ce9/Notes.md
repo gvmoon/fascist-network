@@ -1,1 +1,0 @@
-﻿[Churches of God General Conference (Winebrenner) - Wikipedia](https://en.wikipedia.org/wiki/Churches_of_God_General_Conference_(Winebrenner))

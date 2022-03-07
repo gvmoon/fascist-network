@@ -1,1 +1,0 @@
-﻿[Pennsylvania State University - Wikipedia](https://en.wikipedia.org/wiki/Pennsylvania_State_University)

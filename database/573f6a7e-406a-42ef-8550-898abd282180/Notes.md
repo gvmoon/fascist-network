@@ -1,1 +1,0 @@
-﻿[New York City Sheriff's Office - Wikipedia](https://en.wikipedia.org/wiki/New_York_City_Sheriff%27s_Office)

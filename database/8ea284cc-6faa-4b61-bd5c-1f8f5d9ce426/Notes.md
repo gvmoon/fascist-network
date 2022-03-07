@@ -1,1 +1,0 @@
-﻿[Spessard Holland - Wikipedia](https://en.wikipedia.org/wiki/Spessard_Holland)

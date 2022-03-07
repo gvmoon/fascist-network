@@ -1,0 +1,1 @@
+﻿[Ruth Barcan Marcus - Wikipedia](https://en.wikipedia.org/wiki/Ruth_Barcan_Marcus)

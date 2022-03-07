@@ -1,1 +1,0 @@
-﻿[Mary Ann Glendon - Wikipedia](https://en.wikipedia.org/wiki/Mary_Ann_Glendon)

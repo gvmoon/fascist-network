@@ -1,0 +1,1 @@
+﻿[Newton N. Minow - Wikipedia](https://en.wikipedia.org/wiki/Newton_N._Minow)

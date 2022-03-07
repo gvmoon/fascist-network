@@ -1,1 +1,0 @@
-﻿[College of William & Mary - Wikipedia](https://en.wikipedia.org/wiki/College_of_William_%26_Mary)

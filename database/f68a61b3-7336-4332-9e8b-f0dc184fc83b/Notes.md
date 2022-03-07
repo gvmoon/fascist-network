@@ -1,1 +1,0 @@
-﻿[Claire McCaskill - Wikipedia](https://en.wikipedia.org/wiki/Claire_McCaskill)

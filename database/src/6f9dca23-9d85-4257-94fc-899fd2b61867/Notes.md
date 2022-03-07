@@ -1,0 +1,1 @@
+﻿[Bryan Cranston - Wikipedia](https://en.wikipedia.org/wiki/Bryan_Cranston)

@@ -1,1 +1,0 @@
-﻿[Akademisches Gymnasium (Vienna) - Wikipedia](https://en.wikipedia.org/wiki/Akademisches_Gymnasium_(Vienna))

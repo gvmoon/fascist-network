@@ -1,0 +1,1 @@
+﻿[Dirk Kempthorne - Wikipedia](https://en.wikipedia.org/wiki/Dirk_Kempthorne)

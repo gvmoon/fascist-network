@@ -1,1 +1,0 @@
-﻿[Anglican Church in North America - Wikipedia](https://en.wikipedia.org/wiki/Anglican_Church_in_North_America)

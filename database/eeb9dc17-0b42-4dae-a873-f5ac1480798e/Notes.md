@@ -1,1 +1,0 @@
-﻿[The International Jew - Wikipedia](https://en.wikipedia.org/wiki/The_International_Jew)

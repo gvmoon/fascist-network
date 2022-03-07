@@ -1,0 +1,1 @@
+﻿[Allan Lichtman - Wikipedia](https://en.wikipedia.org/wiki/Allan_Lichtman)

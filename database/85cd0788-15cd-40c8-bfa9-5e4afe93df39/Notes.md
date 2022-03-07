@@ -1,1 +1,0 @@
-﻿[Jean-Louis Tixier-Vignancour - Wikipedia](https://en.wikipedia.org/wiki/Jean-Louis_Tixier-Vignancour)

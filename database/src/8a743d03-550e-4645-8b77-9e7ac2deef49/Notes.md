@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/Dutch_Reformed_Church_in_South_Africa_(NGK)

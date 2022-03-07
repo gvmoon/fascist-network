@@ -1,1 +1,0 @@
-﻿[U.S. Steel - Wikipedia](https://en.wikipedia.org/wiki/U.S._Steel)

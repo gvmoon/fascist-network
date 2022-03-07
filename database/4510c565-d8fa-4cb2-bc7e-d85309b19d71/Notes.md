@@ -1,1 +1,0 @@
-﻿[Jean Charest - Wikipedia](https://en.wikipedia.org/wiki/Jean_Charest)

@@ -1,1 +1,0 @@
-﻿[David E. Sanger - Wikipedia](https://en.wikipedia.org/wiki/David_E._Sanger)

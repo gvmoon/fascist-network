@@ -1,1 +1,0 @@
-﻿[Paul Weyrich - Wikipedia](https://en.wikipedia.org/wiki/Paul_Weyrich)

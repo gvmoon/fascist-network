@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Chicago-Kent_College_of_Law

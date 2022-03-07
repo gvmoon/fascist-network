@@ -1,1 +1,0 @@
-﻿[Arnold Beckman - Wikipedia](https://en.wikipedia.org/wiki/Arnold_Beckman)

@@ -1,1 +1,0 @@
-﻿[Charles Spurgeon - Wikipedia](https://en.wikipedia.org/wiki/Charles_Spurgeon)

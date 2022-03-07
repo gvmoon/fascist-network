@@ -1,1 +1,0 @@
-﻿[Thomas Schelling - Wikipedia](https://en.wikipedia.org/wiki/Thomas_Schelling)

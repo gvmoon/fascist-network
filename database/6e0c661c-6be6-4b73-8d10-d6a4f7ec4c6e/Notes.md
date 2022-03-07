@@ -1,1 +1,0 @@
-﻿[Margaret Fuller - Wikipedia](https://en.wikipedia.org/wiki/Margaret_Fuller)

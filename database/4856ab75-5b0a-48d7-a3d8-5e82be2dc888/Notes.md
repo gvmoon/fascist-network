@@ -1,1 +1,0 @@
-﻿[Leonidas Zervas - Wikipedia](https://en.wikipedia.org/wiki/Leonidas_Zervas)

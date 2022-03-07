@@ -1,1 +1,0 @@
-﻿[Robert Cecil, 1st Viscount Cecil of Chelwood - Wikipedia](https://en.wikipedia.org/wiki/Robert_Cecil,_1st_Viscount_Cecil_of_Chelwood)

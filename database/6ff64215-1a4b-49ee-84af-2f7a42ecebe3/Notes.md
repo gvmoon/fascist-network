@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Conservatism_in_the_United_States

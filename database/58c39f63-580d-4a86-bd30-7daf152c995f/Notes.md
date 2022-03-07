@@ -1,1 +1,0 @@
-﻿[Mohammed bin Salman](https://www.nytimes.com/2019/08/12/business/jeffrey-epstein-interview.html?login=email&auth=login-email)

@@ -1,1 +1,0 @@
-﻿[Jon Kyl - Wikipedia](https://en.wikipedia.org/wiki/Jon_Kyl)

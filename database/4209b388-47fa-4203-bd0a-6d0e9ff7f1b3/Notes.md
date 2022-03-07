@@ -1,1 +1,0 @@
-﻿[Steve Wilson (Ohio politician) - Wikipedia](https://en.wikipedia.org/wiki/Steve_Wilson_(Ohio_politician))

@@ -1,1 +1,0 @@
-﻿[World Reformed Fellowship - Wikipedia](https://en.wikipedia.org/wiki/World_Reformed_Fellowship)

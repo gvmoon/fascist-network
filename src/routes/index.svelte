@@ -2,37 +2,37 @@
   //import "@carbon/charts/styles.min.css";
   //import "carbon-components/css/carbon-components.min.css";
 
-  import thoughts from '$lib/database/thoughts.js'
-  //import links from '$lib/database/links.js'
+  import thoughts from "$lib/database/dist/thoughts.json";
+  //import links from '$lib/database/dist/links.json'
   //import attachments from '$lib/database/attachments.js'
 
-  import { afterUpdate, beforeUpdate, onMount } from "svelte"
+  import { afterUpdate, beforeUpdate, onMount } from "svelte";
 
-  import { amp, browser, dev, mode, prerendering } from '$app/env';
+  import { amp, browser, dev, mode, prerendering } from "$app/env";
 
   import {
-	disableScrollHandling,
-	goto,
-	invalidate,
-	prefetch,
-	prefetchRoutes,
-	beforeNavigate,
-	afterNavigate
-} from '$app/navigation';
+    disableScrollHandling,
+    goto,
+    invalidate,
+    prefetch,
+    prefetchRoutes,
+    beforeNavigate,
+    afterNavigate
+  } from "$app/navigation";
 
-  import { base, assets } from '$app/paths';
+  import { base, assets } from "$app/paths";
 
-  import { getStores, navigating, page, session } from '$app/stores';
+  import { getStores, navigating, page, session } from "$app/stores";
 
-  import _ from 'lodash'
+  import _ from "lodash";
 
-  import Box from './box.svelte';
-  import Circle from './circle.svelte';
-  import Filter from './filter.svelte';
-  import Info from './info.svelte';
-  import Network from './network.svelte';
-  import Timeline from './timeline.svelte';
-  import Tree from './tree.svelte';
+  import Box from "./box.svelte";
+  import Circle from "./circle.svelte";
+  import Filter from "./filter.svelte";
+  import Info from "./info.svelte";
+  import Network from "./network.svelte";
+  import Timeline from "./timeline.svelte";
+  import Tree from "./tree.svelte";
 
   import Search from "carbon-components-svelte/src/Search/Search.svelte";
   let expanded = false;
@@ -40,12 +40,11 @@
   import RadioButtonGroup from "carbon-components-svelte/src/RadioButtonGroup/RadioButtonGroup.svelte";
   import RadioButton from "carbon-components-svelte/src/RadioButton/RadioButton.svelte";
 
-
   let selection;
 
   function handleMessage(event) {
-		alert(event.detail.text);
-	}
+    alert(event.detail.text);
+  }
 
   //function checkType(TypeId) {
   //return TypeID == d266c2fe-63cc-464a-9427-dc4cd7c1ef41;
@@ -60,13 +59,66 @@
   //}
 
   onMount(() => {
-		console.log('the component has mounted');
-	});
+    console.log("the component has mounted");
+  });
 
   afterUpdate(() => {
-		console.log('the component just updated');
-	});
+    console.log("the component just updated");
+  });
 </script>
+
+<style>
+  @font-face {
+    font-family: "FinancierDisplay";
+    font-style: bold;
+    font-weight: 700;
+    src: url("/font/FinancierDisplay-Bold.otf");
+  }
+
+  @font-face {
+    font-family: "FinancierText";
+    font-style: normal;
+    font-weight: 400;
+    src: url("/font/FinancierText-Regular.otf");
+  }
+
+  :global(h1) {
+    font-family: "FinancierDisplay";
+  }
+
+  :global(body) {
+    /* this will apply to <body> */
+    background-color: #060707;
+    color: #ffffff;
+    font-family: "FinancierText";
+    height: 100%;
+    scrollbar-color: #151515 #060707;
+    scrollbar-width: thin;
+  }
+
+  :global(button) {
+    /* this will apply to all <strong> elements, in any
+			 component, that are inside <div> elements belonging
+			 to this component */
+    background-color: #252525;
+    border: none;
+    color: #ffffff;
+    margin-right: 0.25rem;
+    margin-top: 0.5rem;
+  }
+
+  div:global(.info) {
+    /* this will apply to all <p> elements belonging to this 
+			 component with a class of red, even if class="red" does
+			 not initially appear in the markup, and is instead 
+			 added at runtime. This is useful when the class 
+			 of the element is dynamically applied, for instance 
+			 when updating the element's classList property directly. */
+    position: fixed;
+    bottom: 0;
+    margin: 1rem;
+  }
+</style>
 
 <!--search all node name strings-->
 <Search placeholder="Search network" value="Fascism" />
@@ -77,7 +129,6 @@
   <RadioButton labelText="Timeline" value="timeline" />
   <RadioButton labelText="Tree" value="tree" />
 </RadioButtonGroup>-->
-
 
 <!--index and filter-->
 <!-- <Filter on:event={handleEvent}/> -->
@@ -90,61 +141,5 @@
 <!--<Circle />-->
 <!--<Box />-->
 
-
 <!--Selected thought information-->
 <Info />
-
-<style>
-  @font-face {
-    font-family: 'FinancierDisplay';
-    font-style: bold;
-    font-weight: 700;
-    src: url('/font/FinancierDisplay-Bold.otf')
-  }
-
-  @font-face {
-    font-family: 'FinancierText';
-    font-style: normal;
-    font-weight: 400;
-    src: url('/font/FinancierText-Regular.otf')
-  }
-
-  :global(h1) {
-    font-family: 'FinancierDisplay';
-    }
-
-
-	:global(body) {
-		/* this will apply to <body> */
-		background-color: #060707;
-    color: #ffffff;
-    font-family: 'FinancierText';
-    height: 100%;
-    scrollbar-color: #151515 #060707;
-    scrollbar-width: thin;
-	}
-
-	:global(button) {
-		/* this will apply to all <strong> elements, in any
-			 component, that are inside <div> elements belonging
-			 to this component */
-    background-color: #252525;
-    border: none;
-    color: #ffffff;
-    margin-right: .25rem;
-    margin-top: .5rem;
-	}
-  
-
-	div:global(.info) {
-		/* this will apply to all <p> elements belonging to this 
-			 component with a class of red, even if class="red" does
-			 not initially appear in the markup, and is instead 
-			 added at runtime. This is useful when the class 
-			 of the element is dynamically applied, for instance 
-			 when updating the element's classList property directly. */
-       position: fixed;
-       bottom: 0;
-       margin: 1rem;
-	}
-</style>

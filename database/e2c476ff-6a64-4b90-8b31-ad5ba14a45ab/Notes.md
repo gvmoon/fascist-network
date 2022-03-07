@@ -1,1 +1,0 @@
-﻿[Dan Coats - Wikipedia](https://en.wikipedia.org/wiki/Dan_Coats)

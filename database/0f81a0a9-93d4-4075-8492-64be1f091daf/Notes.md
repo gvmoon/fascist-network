@@ -1,1 +1,0 @@
-﻿[www.whwomenclergy](http://www.whwomenclergy.org/)

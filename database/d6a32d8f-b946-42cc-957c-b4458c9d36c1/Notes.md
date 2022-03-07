@@ -1,1 +1,0 @@
-﻿[Big Three (management consultancies) - Wikipedia](https://en.wikipedia.org/wiki/Big_Three_(management_consultancies))

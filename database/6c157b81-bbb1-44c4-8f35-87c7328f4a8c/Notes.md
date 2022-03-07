@@ -1,1 +1,0 @@
-﻿[Boeing - Wikipedia](https://en.wikipedia.org/wiki/Boeing)

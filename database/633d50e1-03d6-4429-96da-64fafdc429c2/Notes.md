@@ -1,1 +1,0 @@
-﻿[Lael Brainard - Wikipedia](https://en.wikipedia.org/wiki/Lael_Brainard)

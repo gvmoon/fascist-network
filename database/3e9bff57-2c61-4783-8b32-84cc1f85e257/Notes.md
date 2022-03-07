@@ -1,1 +1,0 @@
-﻿[1954 Guatemalan coup d'état - Wikipedia](https://en.wikipedia.org/wiki/1954_Guatemalan_coup_d%27%C3%A9tat)

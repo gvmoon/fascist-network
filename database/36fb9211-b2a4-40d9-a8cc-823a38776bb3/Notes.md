@@ -1,1 +1,0 @@
-﻿[Walter J. Sullivan - Wikipedia](https://en.wikipedia.org/wiki/Walter_J._Sullivan)

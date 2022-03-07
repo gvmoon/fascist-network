@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Richard_and_Joan_Ostling

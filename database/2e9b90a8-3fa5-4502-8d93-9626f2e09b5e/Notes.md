@@ -1,1 +1,0 @@
-﻿[University of Edinburgh Medical School - Wikipedia](https://en.wikipedia.org/wiki/University_of_Edinburgh_Medical_School)

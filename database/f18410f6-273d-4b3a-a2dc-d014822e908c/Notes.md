@@ -1,1 +1,0 @@
-﻿[Charles Hodge - Wikipedia](https://en.wikipedia.org/wiki/Charles_Hodge)

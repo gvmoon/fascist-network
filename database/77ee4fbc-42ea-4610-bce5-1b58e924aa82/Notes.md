@@ -1,1 +1,0 @@
-﻿[United Front (China) - Wikipedia](https://en.wikipedia.org/wiki/United_Front_(China))

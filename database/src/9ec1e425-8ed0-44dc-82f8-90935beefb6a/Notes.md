@@ -1,0 +1,1 @@
+﻿[Western Goals Foundation - Wikipedia](https://en.wikipedia.org/wiki/Western_Goals_Foundation)

@@ -1,0 +1,1 @@
+﻿[Joseph Earl Sheffield - Wikipedia](https://en.wikipedia.org/wiki/Joseph_Earl_Sheffield)

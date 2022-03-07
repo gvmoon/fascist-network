@@ -1,1 +1,0 @@
-﻿[Institute of Noetic Sciences - Wikipedia](https://en.wikipedia.org/wiki/Institute_of_Noetic_Sciences)

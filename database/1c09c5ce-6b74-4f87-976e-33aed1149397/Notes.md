@@ -1,1 +1,0 @@
-﻿[Scooter Libby - Wikipedia](https://en.wikipedia.org/wiki/Scooter_Libby)

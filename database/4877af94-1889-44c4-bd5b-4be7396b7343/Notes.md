@@ -1,1 +1,0 @@
-﻿[Gilbert Horal - Wikipedia](https://en.wikipedia.org/wiki/Gilbert_Horal)

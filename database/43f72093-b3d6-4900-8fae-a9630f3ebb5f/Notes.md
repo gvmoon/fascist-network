@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Arizona_SB_1062

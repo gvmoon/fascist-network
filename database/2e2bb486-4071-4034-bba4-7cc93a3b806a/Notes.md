@@ -1,1 +1,0 @@
-﻿[Rudyard Kipling - Wikipedia](https://en.wikipedia.org/wiki/Rudyard_Kipling)

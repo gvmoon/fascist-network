@@ -1,1 +1,0 @@
-﻿[Donald E. Graham - Wikipedia](https://en.wikipedia.org/wiki/Donald_E._Graham)

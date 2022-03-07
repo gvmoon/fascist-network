@@ -1,1 +1,0 @@
-﻿[Buckminster Fuller - Wikipedia](https://en.wikipedia.org/wiki/Buckminster_Fuller)

@@ -1,1 +1,0 @@
-﻿[Russell Conwell - Wikipedia](https://en.wikipedia.org/wiki/Russell_Conwell)

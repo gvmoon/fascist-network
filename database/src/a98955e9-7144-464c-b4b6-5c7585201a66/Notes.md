@@ -1,0 +1,1 @@
+﻿[Amherst College - Wikipedia](https://en.wikipedia.org/wiki/Amherst_College)

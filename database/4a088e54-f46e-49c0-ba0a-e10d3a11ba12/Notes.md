@@ -1,1 +1,0 @@
-﻿[Alain de Benoist - Wikipedia](https://en.wikipedia.org/wiki/Alain_de_Benoist)

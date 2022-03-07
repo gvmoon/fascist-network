@@ -1,1 +1,0 @@
-﻿[Ed Crane (politician) - Wikipedia](https://en.wikipedia.org/wiki/Ed_Crane_(politician))

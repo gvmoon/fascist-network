@@ -1,1 +1,0 @@
-﻿[The Church of Jesus Christ of Latter-day Saints - Wikipedia](https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints)

@@ -1,0 +1,1 @@
+﻿[Sequoia Capital - Wikipedia](https://en.wikipedia.org/wiki/Sequoia_Capital)

@@ -1,1 +1,0 @@
-﻿[Government of Massachusetts - Wikipedia](https://en.wikipedia.org/wiki/Government_of_Massachusetts)

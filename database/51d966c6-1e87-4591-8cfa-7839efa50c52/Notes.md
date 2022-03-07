@@ -1,1 +1,0 @@
-﻿[Stacey Ferreira - Wikipedia](https://en.wikipedia.org/wiki/Stacey_Ferreira)

@@ -1,1 +1,0 @@
-﻿[National Socialist Liberation Front - Wikipedia](https://en.wikipedia.org/wiki/National_Socialist_Liberation_Front)

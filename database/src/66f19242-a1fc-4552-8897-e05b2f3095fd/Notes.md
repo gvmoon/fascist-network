@@ -1,0 +1,1 @@
+﻿[Rick Warren - Wikipedia](https://en.wikipedia.org/wiki/Rick_Warren)

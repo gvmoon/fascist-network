@@ -1,1 +1,0 @@
-﻿[Lester B. Pearson - Wikipedia](https://en.wikipedia.org/wiki/Lester_B._Pearson)

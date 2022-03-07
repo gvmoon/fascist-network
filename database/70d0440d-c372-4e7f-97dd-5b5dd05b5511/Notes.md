@@ -1,1 +1,0 @@
-﻿[Galton Institute - Wikipedia](https://en.wikipedia.org/wiki/Galton_Institute)

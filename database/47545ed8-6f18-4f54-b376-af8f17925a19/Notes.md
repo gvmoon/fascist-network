@@ -1,1 +1,0 @@
-﻿[Harold Russell - Wikipedia](https://en.wikipedia.org/wiki/Harold_Russell)

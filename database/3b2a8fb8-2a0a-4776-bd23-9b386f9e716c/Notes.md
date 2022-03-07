@@ -1,1 +1,0 @@
-﻿[Bernard Bolzano - Wikipedia](https://en.wikipedia.org/wiki/Bernard_Bolzano)

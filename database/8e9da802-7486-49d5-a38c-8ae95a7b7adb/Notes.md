@@ -1,1 +1,0 @@
-﻿[Keynesian economics - Wikipedia](https://en.wikipedia.org/wiki/Keynesian_economics)

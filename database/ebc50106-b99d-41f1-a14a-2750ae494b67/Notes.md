@@ -1,1 +1,0 @@
-﻿[Cinema of the United States - Wikipedia](https://en.wikipedia.org/wiki/Cinema_of_the_United_States)

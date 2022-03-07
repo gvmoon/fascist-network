@@ -1,1 +1,0 @@
-﻿[Thomas Road Baptist Church - Wikipedia](https://en.wikipedia.org/wiki/Thomas_Road_Baptist_Church)

@@ -1,1 +1,0 @@
-﻿[Wesleyan University - Wikipedia](https://en.wikipedia.org/wiki/Wesleyan_University)

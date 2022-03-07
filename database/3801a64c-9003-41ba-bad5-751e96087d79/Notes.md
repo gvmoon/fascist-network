@@ -1,1 +1,0 @@
-﻿[Ford Foundation - Wikipedia](https://en.wikipedia.org/wiki/Ford_Foundation)

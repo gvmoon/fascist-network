@@ -1,1 +1,0 @@
-﻿[Udall family - Wikipedia](https://en.wikipedia.org/wiki/Udall_family)

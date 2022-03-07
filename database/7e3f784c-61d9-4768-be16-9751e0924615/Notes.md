@@ -1,1 +1,0 @@
-﻿[George B. McClellan Jr. - Wikipedia](https://en.wikipedia.org/wiki/George_B._McClellan_Jr.)

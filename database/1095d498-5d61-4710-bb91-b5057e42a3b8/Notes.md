@@ -1,1 +1,0 @@
-﻿[Bernard de Tremelay - Wikipedia](https://en.wikipedia.org/wiki/Bernard_de_Tremelay)

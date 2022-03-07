@@ -1,1 +1,0 @@
-﻿[Brock Kreitzburg - Wikipedia](https://en.wikipedia.org/wiki/Brock_Kreitzburg)

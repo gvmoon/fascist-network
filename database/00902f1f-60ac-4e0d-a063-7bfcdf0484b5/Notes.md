@@ -1,1 +1,0 @@
-﻿[University of Chicago Law School - Wikipedia](https://en.wikipedia.org/wiki/University_of_Chicago_Law_School)

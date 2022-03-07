@@ -1,1 +1,0 @@
-﻿[Earl Warren - Wikipedia](https://en.wikipedia.org/wiki/Earl_Warren)

@@ -1,1 +1,0 @@
-﻿[Metro Pictures - Wikipedia](https://en.wikipedia.org/wiki/Metro_Pictures)

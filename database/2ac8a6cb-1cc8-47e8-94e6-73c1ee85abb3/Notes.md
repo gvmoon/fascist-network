@@ -1,1 +1,0 @@
-﻿[John Molson School of Business - Wikipedia](https://en.wikipedia.org/wiki/John_Molson_School_of_Business)

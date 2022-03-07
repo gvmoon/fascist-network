@@ -1,1 +1,0 @@
-﻿[Mike Johanns - Wikipedia](https://en.wikipedia.org/wiki/Mike_Johanns)

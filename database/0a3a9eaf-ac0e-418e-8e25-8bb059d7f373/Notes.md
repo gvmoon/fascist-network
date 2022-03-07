@@ -1,1 +1,0 @@
-﻿[Franz Mesmer - Wikipedia](https://en.wikipedia.org/wiki/Franz_Mesmer)

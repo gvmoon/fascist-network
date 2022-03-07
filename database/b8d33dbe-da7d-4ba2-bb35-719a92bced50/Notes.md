@@ -1,1 +1,0 @@
-﻿[One Mission Society - Wikipedia](https://en.wikipedia.org/wiki/One_Mission_Society)

@@ -1,0 +1,1 @@
+﻿[Walter Mondale - Wikipedia](https://en.wikipedia.org/wiki/Walter_Mondale)

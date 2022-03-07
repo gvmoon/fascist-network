@@ -1,1 +1,0 @@
-﻿[Ratan Tata - Wikipedia](https://en.wikipedia.org/wiki/Ratan_Tata)

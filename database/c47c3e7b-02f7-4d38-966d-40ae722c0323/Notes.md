@@ -1,1 +1,0 @@
-﻿[Sophia Ripley - Wikipedia](https://en.wikipedia.org/wiki/Sophia_Ripley)

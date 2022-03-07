@@ -1,1 +1,0 @@
-﻿[Ebby Thacher - Wikipedia](https://en.wikipedia.org/wiki/Ebby_Thacher)

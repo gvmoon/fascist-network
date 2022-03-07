@@ -1,1 +1,0 @@
-﻿[Beverly LaHaye - Wikipedia](https://en.wikipedia.org/wiki/Beverly_LaHaye)

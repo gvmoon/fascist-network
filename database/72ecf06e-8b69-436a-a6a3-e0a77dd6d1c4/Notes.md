@@ -1,1 +1,0 @@
-﻿[Church of Ireland - Wikipedia](https://en.wikipedia.org/wiki/Church_of_Ireland)

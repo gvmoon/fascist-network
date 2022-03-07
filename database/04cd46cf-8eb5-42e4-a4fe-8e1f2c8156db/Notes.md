@@ -1,1 +1,0 @@
-﻿[John Sanborn Phillips - Wikipedia](https://en.wikipedia.org/wiki/John_Sanborn_Phillips)

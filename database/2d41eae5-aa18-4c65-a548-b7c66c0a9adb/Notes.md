@@ -1,1 +1,0 @@
-﻿[Wyatt Emory Cooper - Wikipedia](https://en.wikipedia.org/wiki/Wyatt_Emory_Cooper)

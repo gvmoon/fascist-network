@@ -1,1 +1,0 @@
-﻿[Abraham Wald - Wikipedia](https://en.wikipedia.org/wiki/Abraham_Wald)

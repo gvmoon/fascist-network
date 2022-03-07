@@ -1,1 +1,0 @@
-﻿[Tadashi Yamamoto - Wikipedia](https://en.wikipedia.org/wiki/Tadashi_Yamamoto)

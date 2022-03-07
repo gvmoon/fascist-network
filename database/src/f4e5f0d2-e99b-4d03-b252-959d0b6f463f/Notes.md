@@ -1,0 +1,1 @@
+﻿[Katie Couric - Wikipedia](https://en.wikipedia.org/wiki/Katie_Couric)

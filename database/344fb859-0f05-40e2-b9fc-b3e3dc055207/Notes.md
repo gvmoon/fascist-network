@@ -1,1 +1,0 @@
-﻿[IIT Institute of Design - Wikipedia](https://en.wikipedia.org/wiki/IIT_Institute_of_Design)

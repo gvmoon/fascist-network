@@ -1,1 +1,0 @@
-﻿[Tsagaan Khas - Wikipedia](https://en.wikipedia.org/wiki/Tsagaan_Khas)

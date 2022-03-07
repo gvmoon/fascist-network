@@ -1,1 +1,0 @@
-﻿[O. T. Jones Sr. - Wikipedia](https://en.wikipedia.org/wiki/O._T._Jones_Sr.)

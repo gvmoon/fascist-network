@@ -1,1 +1,0 @@
-﻿[Supreme Court of the United States - Wikipedia](https://en.wikipedia.org/wiki/Supreme_Court_of_the_United_States)

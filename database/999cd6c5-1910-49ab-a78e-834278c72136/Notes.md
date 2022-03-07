@@ -1,1 +1,0 @@
-﻿[Edward Tagart - Wikipedia](https://en.wikipedia.org/wiki/Edward_Tagart)

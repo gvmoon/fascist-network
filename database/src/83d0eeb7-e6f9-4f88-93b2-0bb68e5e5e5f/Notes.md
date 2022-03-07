@@ -1,0 +1,1 @@
+﻿[James Emery White - Wikipedia](https://en.wikipedia.org/wiki/James_Emery_White)

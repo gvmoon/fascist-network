@@ -1,0 +1,1 @@
+﻿[Andrew Marshall (foreign policy strategist) - Wikipedia](https://en.wikipedia.org/wiki/Andrew_Marshall_(foreign_policy_strategist))

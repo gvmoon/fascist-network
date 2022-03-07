@@ -1,1 +1,0 @@
-﻿[Leslie C. Arends - Wikipedia](https://en.wikipedia.org/wiki/Leslie_C._Arends)

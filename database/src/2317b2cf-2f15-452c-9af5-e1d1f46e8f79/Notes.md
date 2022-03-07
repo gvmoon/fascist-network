@@ -1,0 +1,1 @@
+﻿[Ed Butler: Expert in Propaganda and Psychological Warfare](https://www.kennedysandking.com/john-f-kennedy-articles/ed-butler-expert-in-propaganda-and-psychological-warfare)

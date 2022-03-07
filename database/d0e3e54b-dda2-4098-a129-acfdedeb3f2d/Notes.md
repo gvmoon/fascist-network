@@ -1,1 +1,0 @@
-﻿[K. J. Popma - Wikipedia](https://en.wikipedia.org/wiki/K._J._Popma)

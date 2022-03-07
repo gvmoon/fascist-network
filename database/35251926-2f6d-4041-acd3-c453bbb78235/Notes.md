@@ -1,1 +1,0 @@
-﻿[United Grand Lodge of England - Wikipedia](https://en.wikipedia.org/wiki/United_Grand_Lodge_of_England)

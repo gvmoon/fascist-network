@@ -1,1 +1,0 @@
-﻿[Jorge Ubico - Wikipedia](https://en.wikipedia.org/wiki/Jorge_Ubico)

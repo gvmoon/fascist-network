@@ -1,1 +1,0 @@
-﻿[Waldemar Gurian - Wikipedia](https://en.wikipedia.org/wiki/Waldemar_Gurian)

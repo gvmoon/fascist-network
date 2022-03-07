@@ -1,1 +1,0 @@
-﻿[Phineas F. Bresee - Wikipedia](https://en.wikipedia.org/wiki/Phineas_F._Bresee)

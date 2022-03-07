@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Konstantin_von_Neurath

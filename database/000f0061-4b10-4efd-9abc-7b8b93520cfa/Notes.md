@@ -1,1 +1,0 @@
-﻿[Jean-Paul Sartre - Wikipedia](https://en.wikipedia.org/wiki/Jean-Paul_Sartre)

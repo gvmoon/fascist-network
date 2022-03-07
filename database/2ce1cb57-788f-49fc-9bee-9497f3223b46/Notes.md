@@ -1,1 +1,0 @@
-﻿[World Wide Fund for Nature - Wikipedia](https://en.wikipedia.org/wiki/World_Wide_Fund_for_Nature)

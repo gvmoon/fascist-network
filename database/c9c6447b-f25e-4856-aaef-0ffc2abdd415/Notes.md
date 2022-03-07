@@ -1,1 +1,0 @@
-﻿[Partisan Review - Wikipedia](https://en.wikipedia.org/wiki/Partisan_Review)

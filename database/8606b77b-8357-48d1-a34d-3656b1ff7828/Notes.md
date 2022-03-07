@@ -1,1 +1,0 @@
-﻿[Brian Michael Jenkins - Wikipedia](https://en.wikipedia.org/wiki/Brian_Michael_Jenkins)

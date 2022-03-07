@@ -1,1 +1,0 @@
-﻿[Freedom Forum - Wikipedia](https://en.wikipedia.org/wiki/Freedom_Forum)

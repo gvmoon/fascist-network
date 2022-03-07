@@ -1,1 +1,0 @@
-﻿[Merrill Unger - Wikipedia](https://en.wikipedia.org/wiki/Merrill_Unger)

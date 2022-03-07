@@ -1,1 +1,0 @@
-﻿[Sonny Perdue - Wikipedia](https://en.wikipedia.org/wiki/Sonny_Perdue)

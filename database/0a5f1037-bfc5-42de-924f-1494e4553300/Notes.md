@@ -1,1 +1,0 @@
-﻿[Albert M. Wolters - Wikipedia](https://en.wikipedia.org/wiki/Albert_M._Wolters)

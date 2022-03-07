@@ -1,1 +1,0 @@
-﻿[Mennonite Brethren Church - Wikipedia](https://en.wikipedia.org/wiki/Mennonite_Brethren_Church)

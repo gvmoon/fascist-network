@@ -1,1 +1,0 @@
-﻿[Esoteric Christianity - Wikipedia](https://en.wikipedia.org/wiki/Esoteric_Christianity)

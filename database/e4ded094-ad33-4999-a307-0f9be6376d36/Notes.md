@@ -1,1 +1,0 @@
-﻿[Gerald Ford - Wikipedia](https://en.wikipedia.org/wiki/Gerald_Ford)

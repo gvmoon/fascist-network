@@ -1,1 +1,0 @@
-﻿[Project Y - Wikipedia](https://en.wikipedia.org/wiki/Project_Y)

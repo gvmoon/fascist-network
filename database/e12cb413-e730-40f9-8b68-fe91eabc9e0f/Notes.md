@@ -1,1 +1,0 @@
-﻿[B. Campbell Thornal - Wikipedia](https://en.wikipedia.org/wiki/B._Campbell_Thornal)

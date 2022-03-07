@@ -1,0 +1,1 @@
+﻿[The Heritage Foundation - Wikipedia](https://en.wikipedia.org/wiki/The_Heritage_Foundation)

@@ -1,1 +1,0 @@
-﻿[New Left - Wikipedia](https://en.wikipedia.org/wiki/New_Left)

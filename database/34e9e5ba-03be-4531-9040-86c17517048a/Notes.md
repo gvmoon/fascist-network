@@ -1,1 +1,0 @@
-﻿[William Scranton III - Wikipedia](https://en.wikipedia.org/wiki/William_Scranton_III)

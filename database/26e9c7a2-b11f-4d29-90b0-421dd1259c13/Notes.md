@@ -1,1 +1,0 @@
-﻿[Willis Harman - Wikipedia](https://en.wikipedia.org/wiki/Willis_Harman)

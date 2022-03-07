@@ -1,1 +1,0 @@
-﻿[Arizona State University - Wikipedia](https://en.wikipedia.org/wiki/Arizona_State_University)

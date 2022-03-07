@@ -1,1 +1,0 @@
-﻿[Moravian Church - Wikipedia](https://en.wikipedia.org/wiki/Moravian_Church)

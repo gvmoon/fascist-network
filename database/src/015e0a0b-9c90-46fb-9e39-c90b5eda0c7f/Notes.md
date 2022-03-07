@@ -1,0 +1,1 @@
+﻿[Graham Wallas - Wikipedia](https://en.wikipedia.org/wiki/Graham_Wallas)

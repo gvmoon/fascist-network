@@ -1,1 +1,0 @@
-﻿[Lars Onsager - Wikipedia](https://en.wikipedia.org/wiki/Lars_Onsager)

@@ -1,1 +1,0 @@
-﻿[Jaegwon Kim - Wikipedia](https://en.wikipedia.org/wiki/Jaegwon_Kim)

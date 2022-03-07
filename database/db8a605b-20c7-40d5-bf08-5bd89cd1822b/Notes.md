@@ -1,1 +1,0 @@
-﻿[Sidney Souers - Wikipedia](https://en.wikipedia.org/wiki/Sidney_Souers)

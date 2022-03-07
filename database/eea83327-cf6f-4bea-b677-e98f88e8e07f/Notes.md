@@ -1,1 +1,0 @@
-﻿[Nathan Rothschild, 1st Baron Rothschild - Wikipedia](https://en.wikipedia.org/wiki/Nathan_Rothschild,_1st_Baron_Rothschild)

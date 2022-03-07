@@ -1,1 +1,0 @@
-﻿[Firing Line (TV program) - Wikipedia](https://en.wikipedia.org/wiki/Firing_Line_(TV_program))

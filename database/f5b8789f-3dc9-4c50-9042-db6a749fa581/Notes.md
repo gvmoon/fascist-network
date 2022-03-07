@@ -1,1 +1,0 @@
-﻿[Edward Adelbert Doisy - Wikipedia](https://en.wikipedia.org/wiki/Edward_Adelbert_Doisy)

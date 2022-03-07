@@ -1,0 +1,1 @@
+﻿[Emanuel Swedenborg - Wikipedia](https://en.wikipedia.org/wiki/Emanuel_Swedenborg)

@@ -1,1 +1,0 @@
-﻿[Political science - Wikipedia](https://en.wikipedia.org/wiki/Political_science)

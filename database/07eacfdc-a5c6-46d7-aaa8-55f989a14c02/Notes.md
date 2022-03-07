@@ -1,1 +1,0 @@
-﻿[American Geographical Society - Wikipedia](https://en.wikipedia.org/wiki/American_Geographical_Society)

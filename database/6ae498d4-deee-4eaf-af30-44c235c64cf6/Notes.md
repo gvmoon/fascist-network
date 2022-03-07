@@ -1,1 +1,0 @@
-﻿[Wesley A. Swift - Wikipedia](https://en.wikipedia.org/wiki/Wesley_A._Swift)

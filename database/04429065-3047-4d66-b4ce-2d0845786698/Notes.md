@@ -1,1 +1,0 @@
-﻿[World Bank - Wikipedia](https://en.wikipedia.org/wiki/World_Bank)

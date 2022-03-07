@@ -1,1 +1,0 @@
-﻿[West Point, New York - Wikipedia](https://en.wikipedia.org/wiki/West_Point,_New_York)

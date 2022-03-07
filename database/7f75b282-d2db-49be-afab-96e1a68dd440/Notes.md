@@ -1,1 +1,0 @@
-﻿[AT&T - Wikipedia](https://en.wikipedia.org/wiki/AT%26T)

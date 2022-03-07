@@ -1,1 +1,0 @@
-﻿[Arturo Reghini - Wikipedia](https://en.wikipedia.org/wiki/Arturo_Reghini)

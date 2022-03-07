@@ -1,1 +1,0 @@
-﻿[Lauren Boebert - Wikipedia](https://en.wikipedia.org/wiki/Lauren_Boebert)

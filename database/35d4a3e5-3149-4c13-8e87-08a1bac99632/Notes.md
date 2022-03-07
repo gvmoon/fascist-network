@@ -1,1 +1,0 @@
-﻿[Greg Laurie - Wikipedia](https://en.wikipedia.org/wiki/Greg_Laurie)

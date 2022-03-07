@@ -1,1 +1,0 @@
-﻿[University of Minnesota - Wikipedia](https://en.wikipedia.org/wiki/University_of_Minnesota)

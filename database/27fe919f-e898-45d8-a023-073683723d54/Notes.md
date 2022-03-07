@@ -1,1 +1,0 @@
-﻿[Hans Meerwein - Wikipedia](https://en.wikipedia.org/wiki/Hans_Meerwein)

@@ -1,1 +1,0 @@
-﻿[Michael Malice - Wikipedia](https://en.wikipedia.org/wiki/Michael_Malice)

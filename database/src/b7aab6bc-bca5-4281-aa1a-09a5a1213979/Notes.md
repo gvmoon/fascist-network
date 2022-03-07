@@ -1,0 +1,1 @@
+﻿[Henry Ware (Unitarian) - Wikipedia](https://en.wikipedia.org/wiki/Henry_Ware_(Unitarian))

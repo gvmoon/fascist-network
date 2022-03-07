@@ -1,1 +1,0 @@
-﻿[Heinrich von Treitschke - Wikipedia](https://en.wikipedia.org/wiki/Heinrich_von_Treitschke)

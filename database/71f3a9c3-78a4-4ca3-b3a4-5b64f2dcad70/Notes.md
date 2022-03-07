@@ -1,1 +1,0 @@
-﻿[Intellectual Ventures - Wikipedia](https://en.wikipedia.org/wiki/Intellectual_Ventures)

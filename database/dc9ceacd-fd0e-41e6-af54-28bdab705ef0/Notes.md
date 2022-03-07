@@ -1,1 +1,0 @@
-﻿[Calvin Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Calvin_Theological_Seminary)

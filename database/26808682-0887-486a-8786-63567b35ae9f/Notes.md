@@ -1,1 +1,0 @@
-﻿[William Howard Taft - Wikipedia](https://en.wikipedia.org/wiki/William_Howard_Taft)

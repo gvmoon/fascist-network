@@ -1,1 +1,0 @@
-﻿[Clay Shaw - Wikipedia](https://en.wikipedia.org/wiki/Clay_Shaw)

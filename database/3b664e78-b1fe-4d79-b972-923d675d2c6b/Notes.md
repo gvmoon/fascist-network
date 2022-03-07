@@ -1,1 +1,0 @@
-﻿[Executive Intelligence Review - Wikipedia](https://en.wikipedia.org/wiki/Executive_Intelligence_Review)

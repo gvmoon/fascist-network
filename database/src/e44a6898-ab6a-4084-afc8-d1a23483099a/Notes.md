@@ -1,0 +1,1 @@
+﻿[Georg Simmel - Wikipedia](https://en.wikipedia.org/wiki/Georg_Simmel)

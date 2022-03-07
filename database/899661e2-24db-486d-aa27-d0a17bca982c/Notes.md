@@ -1,1 +1,0 @@
-﻿[Bill English (computer engineer) - Wikipedia](https://en.wikipedia.org/wiki/Bill_English_(computer_engineer))

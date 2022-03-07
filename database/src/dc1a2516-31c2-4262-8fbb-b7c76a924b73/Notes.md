@@ -1,0 +1,1 @@
+﻿[Worthington Scranton - Wikipedia](https://en.wikipedia.org/wiki/Worthington_Scranton)

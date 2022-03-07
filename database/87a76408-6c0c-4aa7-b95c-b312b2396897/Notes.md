@@ -1,1 +1,0 @@
-﻿[National Review - Wikipedia](https://en.wikipedia.org/wiki/National_Review)

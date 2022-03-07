@@ -1,1 +1,0 @@
-﻿[Alex Azar - Wikipedia](https://en.wikipedia.org/wiki/Alex_Azar)

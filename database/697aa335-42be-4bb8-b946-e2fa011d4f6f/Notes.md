@@ -1,1 +1,0 @@
-﻿[University of Western Ontario - Wikipedia](https://en.wikipedia.org/wiki/University_of_Western_Ontario)

@@ -1,1 +1,0 @@
-﻿[Williams College - Wikipedia](https://en.wikipedia.org/wiki/Williams_College)

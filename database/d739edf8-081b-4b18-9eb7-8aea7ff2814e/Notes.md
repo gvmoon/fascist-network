@@ -1,1 +1,0 @@
-﻿[Identity Evropa - Wikipedia](https://en.wikipedia.org/wiki/Identity_Evropa)

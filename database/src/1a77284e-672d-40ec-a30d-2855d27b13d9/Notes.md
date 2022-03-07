@@ -1,0 +1,1 @@
+﻿[James Thomson (executive) - Wikipedia](https://en.wikipedia.org/wiki/James_Thomson_(executive))

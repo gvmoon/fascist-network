@@ -1,1 +1,0 @@
-﻿[John Galsworthy - Wikipedia](https://en.wikipedia.org/wiki/John_Galsworthy)

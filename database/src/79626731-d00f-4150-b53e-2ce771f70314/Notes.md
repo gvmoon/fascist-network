@@ -1,0 +1,1 @@
+﻿[Mary McLeod Bethune - Wikipedia](https://en.wikipedia.org/wiki/Mary_McLeod_Bethune)

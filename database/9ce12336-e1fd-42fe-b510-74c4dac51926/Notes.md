@@ -1,1 +1,0 @@
-﻿[United States Armed Forces - Wikipedia](https://en.wikipedia.org/wiki/United_States_Armed_Forces)

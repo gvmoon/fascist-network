@@ -1,0 +1,1 @@
+﻿[Theodore Roosevelt Jr. - Wikipedia](https://en.wikipedia.org/wiki/Theodore_Roosevelt_Jr.)

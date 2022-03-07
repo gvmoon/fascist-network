@@ -1,1 +1,0 @@
-﻿[Hans Blüher - Wikipedia](https://en.wikipedia.org/wiki/Hans_Bl%C3%BCher)

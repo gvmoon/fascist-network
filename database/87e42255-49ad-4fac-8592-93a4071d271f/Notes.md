@@ -1,1 +1,0 @@
-﻿[University of Florida - Wikipedia](https://en.wikipedia.org/wiki/University_of_Florida)

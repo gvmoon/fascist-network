@@ -1,1 +1,0 @@
-﻿[National Prayer Breakfast - Wikipedia](https://en.wikipedia.org/wiki/National_Prayer_Breakfast)

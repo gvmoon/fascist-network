@@ -1,1 +1,0 @@
-﻿[Doyle E. Carlton - Wikipedia](https://en.wikipedia.org/wiki/Doyle_E._Carlton)

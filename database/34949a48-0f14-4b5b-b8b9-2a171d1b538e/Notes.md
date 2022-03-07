@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Executive_Office_of_the_President_of_the_United_States

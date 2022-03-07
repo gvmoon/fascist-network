@@ -1,1 +1,0 @@
-﻿[Roy E. Disney - Wikipedia](https://en.wikipedia.org/wiki/Roy_E._Disney)

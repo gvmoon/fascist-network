@@ -1,1 +1,0 @@
-﻿[Mark Hanna - Wikipedia](https://en.wikipedia.org/wiki/Mark_Hanna)

@@ -1,1 +1,0 @@
-﻿[Baker Publishing Group - Wikipedia](https://en.wikipedia.org/wiki/Baker_Publishing_Group)

@@ -1,1 +1,0 @@
-﻿[Barry Goldwater 1964 presidential campaign - Wikipedia](https://en.wikipedia.org/wiki/Barry_Goldwater_1964_presidential_campaign)

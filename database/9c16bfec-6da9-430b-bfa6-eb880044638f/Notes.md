@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/%22I_AM%22_Activity

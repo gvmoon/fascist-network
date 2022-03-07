@@ -1,1 +1,0 @@
-﻿[Jamal Sowell - Wikipedia](https://en.wikipedia.org/wiki/Jamal_Sowell)

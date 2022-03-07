@@ -1,0 +1,1 @@
+﻿[John Bosco Manat Chuabsamai - Wikipedia](https://en.wikipedia.org/wiki/John_Bosco_Manat_Chuabsamai)

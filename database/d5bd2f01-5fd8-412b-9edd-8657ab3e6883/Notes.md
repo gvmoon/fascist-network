@@ -1,1 +1,0 @@
-﻿[Epistemology - Wikipedia](https://en.wikipedia.org/wiki/Epistemology)

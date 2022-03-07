@@ -1,1 +1,0 @@
-﻿[Rutherford B. Hayes - Wikipedia](https://en.wikipedia.org/wiki/Rutherford_B._Hayes)

@@ -1,1 +1,0 @@
-﻿[Scranton family - Wikipedia](https://en.wikipedia.org/wiki/Scranton_family)

@@ -1,1 +1,0 @@
-﻿[Harvey Dow Gibson - Wikipedia](https://en.wikipedia.org/wiki/Harvey_Dow_Gibson)

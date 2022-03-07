@@ -1,1 +1,0 @@
-﻿[Henry Newbolt - Wikipedia](https://en.wikipedia.org/wiki/Henry_Newbolt)

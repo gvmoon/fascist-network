@@ -1,1 +1,0 @@
-﻿[Lukas Biewald - Wikipedia](https://en.wikipedia.org/wiki/Lukas_Biewald)

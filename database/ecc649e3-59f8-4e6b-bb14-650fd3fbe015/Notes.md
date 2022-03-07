@@ -1,1 +1,0 @@
-﻿[Matthew Vassar - Wikipedia](https://en.wikipedia.org/wiki/Matthew_Vassar)

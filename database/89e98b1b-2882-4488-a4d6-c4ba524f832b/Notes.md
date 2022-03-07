@@ -1,1 +1,0 @@
-﻿[Associate Reformed Presbyterian Church - Wikipedia](https://en.wikipedia.org/wiki/Associate_Reformed_Presbyterian_Church)

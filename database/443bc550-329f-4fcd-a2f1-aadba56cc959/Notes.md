@@ -1,1 +1,0 @@
-﻿[Presidency of Donald Trump - Wikipedia](https://en.wikipedia.org/wiki/Presidency_of_Donald_Trump)

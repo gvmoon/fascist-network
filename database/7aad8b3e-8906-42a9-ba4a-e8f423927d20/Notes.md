@@ -1,1 +1,0 @@
-﻿[Lucius D. Clay - Wikipedia](https://en.wikipedia.org/wiki/Lucius_D._Clay)

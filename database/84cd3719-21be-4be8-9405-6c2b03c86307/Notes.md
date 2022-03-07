@@ -1,1 +1,0 @@
-﻿[Political parties in the United States - Wikipedia](https://en.wikipedia.org/wiki/Political_parties_in_the_United_States)

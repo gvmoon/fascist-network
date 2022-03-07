@@ -1,1 +1,0 @@
-﻿[Spiro Agnew - Wikipedia](https://en.wikipedia.org/wiki/Spiro_Agnew)

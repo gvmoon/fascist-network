@@ -1,1 +1,0 @@
-﻿[MicroStrategy - Wikipedia](https://en.wikipedia.org/wiki/MicroStrategy)

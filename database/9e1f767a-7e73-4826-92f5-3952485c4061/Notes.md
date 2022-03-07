@@ -1,1 +1,0 @@
-﻿[Corpus Christi College, Oxford - Wikipedia](https://en.wikipedia.org/wiki/Corpus_Christi_College,_Oxford)

@@ -1,1 +1,0 @@
-﻿[Dick Gregory - Wikipedia](https://en.wikipedia.org/wiki/Dick_Gregory)

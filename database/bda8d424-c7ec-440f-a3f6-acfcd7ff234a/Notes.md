@@ -1,1 +1,0 @@
-﻿[Charles Stanley - Wikipedia](https://en.wikipedia.org/wiki/Charles_Stanley)

@@ -1,1 +1,0 @@
-﻿[Martha Harris - Wikipedia](https://en.wikipedia.org/wiki/Martha_Harris)

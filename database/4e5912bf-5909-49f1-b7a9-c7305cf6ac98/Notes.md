@@ -1,1 +1,0 @@
-﻿[Gary Hendrix - Wikipedia](https://en.wikipedia.org/wiki/Gary_Hendrix)

@@ -1,1 +1,0 @@
-﻿[François-René de Chateaubriand - Wikipedia](https://en.wikipedia.org/wiki/Fran%C3%A7ois-Ren%C3%A9_de_Chateaubriand)

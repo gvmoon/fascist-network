@@ -1,1 +1,0 @@
-﻿[List of political parties in Germany - Wikipedia](https://en.wikipedia.org/wiki/List_of_political_parties_in_Germany)

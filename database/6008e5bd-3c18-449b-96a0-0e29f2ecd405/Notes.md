@@ -1,1 +1,0 @@
-﻿[W. I. Lincoln Adams - Wikipedia](https://en.wikipedia.org/wiki/W._I._Lincoln_Adams)

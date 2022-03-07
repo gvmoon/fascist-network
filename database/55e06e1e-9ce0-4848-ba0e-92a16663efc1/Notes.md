@@ -1,1 +1,0 @@
-﻿[Herbert Kitchener, 1st Earl Kitchener - Wikipedia](https://en.wikipedia.org/wiki/Herbert_Kitchener,_1st_Earl_Kitchener)

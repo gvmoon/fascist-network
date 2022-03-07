@@ -1,0 +1,1 @@
+﻿[Kenneth Arrow - Wikipedia](https://en.wikipedia.org/wiki/Kenneth_Arrow)

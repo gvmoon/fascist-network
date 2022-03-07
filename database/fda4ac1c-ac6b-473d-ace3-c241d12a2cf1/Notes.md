@@ -1,1 +1,0 @@
-﻿[John J. Collins (bishop) - Wikipedia](https://en.wikipedia.org/wiki/John_J._Collins_(bishop))

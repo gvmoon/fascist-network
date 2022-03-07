@@ -1,1 +1,0 @@
-﻿[Arthur Emmons Raymond - Wikipedia](https://en.wikipedia.org/wiki/Arthur_Emmons_Raymond)

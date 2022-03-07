@@ -1,1 +1,0 @@
-﻿[Georgetown University - Wikipedia](https://en.wikipedia.org/wiki/Georgetown_University)

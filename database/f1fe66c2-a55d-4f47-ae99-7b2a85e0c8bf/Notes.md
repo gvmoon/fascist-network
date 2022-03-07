@@ -1,1 +1,0 @@
-﻿[John Kerry - Wikipedia](https://en.wikipedia.org/wiki/John_Kerry)

@@ -1,1 +1,0 @@
-﻿[University of California, Berkeley - Wikipedia](https://en.wikipedia.org/wiki/University_of_California,_Berkeley)

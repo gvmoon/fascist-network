@@ -1,1 +1,0 @@
-﻿[Chauncey Wright - Wikipedia](https://en.wikipedia.org/wiki/Chauncey_Wright)

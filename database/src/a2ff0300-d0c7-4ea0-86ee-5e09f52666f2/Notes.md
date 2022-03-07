@@ -1,0 +1,1 @@
+﻿[James Burnham - Wikipedia](https://en.wikipedia.org/wiki/James_Burnham)

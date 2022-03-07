@@ -1,1 +1,0 @@
-﻿[Howard W. Hunter - Wikipedia](https://en.wikipedia.org/wiki/Howard_W._Hunter)

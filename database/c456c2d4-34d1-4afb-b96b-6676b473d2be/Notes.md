@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Ry%C5%8Dichi_Sasakawa

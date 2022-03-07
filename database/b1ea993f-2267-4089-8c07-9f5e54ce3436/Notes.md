@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Amos_Bronson_Alcott

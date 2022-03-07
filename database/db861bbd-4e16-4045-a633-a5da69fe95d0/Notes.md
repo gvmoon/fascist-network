@@ -1,1 +1,0 @@
-﻿[Sylvester Judd - Wikipedia](https://en.wikipedia.org/wiki/Sylvester_Judd)

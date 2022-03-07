@@ -1,0 +1,1 @@
+﻿[Social Darwinism - Wikipedia](https://en.wikipedia.org/wiki/Social_Darwinism)

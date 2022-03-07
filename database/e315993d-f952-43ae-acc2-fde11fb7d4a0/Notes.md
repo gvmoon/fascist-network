@@ -1,1 +1,0 @@
-﻿[Reformational philosophy - Wikipedia](https://en.wikipedia.org/wiki/Reformational_philosophy)

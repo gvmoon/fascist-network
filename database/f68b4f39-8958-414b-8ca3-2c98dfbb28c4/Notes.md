@@ -1,1 +1,0 @@
-﻿[Robert L. Joss - Wikipedia](https://en.wikipedia.org/wiki/Robert_L._Joss)

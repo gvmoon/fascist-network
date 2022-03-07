@@ -1,1 +1,0 @@
-﻿[New York State Legislature - Wikipedia](https://en.wikipedia.org/wiki/New_York_State_Legislature)

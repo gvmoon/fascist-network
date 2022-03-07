@@ -1,1 +1,0 @@
-﻿[Caux Round Table - Wikipedia](https://en.wikipedia.org/wiki/Caux_Round_Table)

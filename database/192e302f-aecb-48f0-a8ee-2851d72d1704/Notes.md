@@ -1,1 +1,0 @@
-﻿[Silver Legion of America - Wikipedia](https://en.wikipedia.org/wiki/Silver_Legion_of_America)

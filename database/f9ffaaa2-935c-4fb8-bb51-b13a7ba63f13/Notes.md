@@ -1,1 +1,0 @@
-﻿[Isaac Roosevelt (businessman) - Wikipedia](https://en.wikipedia.org/wiki/Isaac_Roosevelt_(businessman))

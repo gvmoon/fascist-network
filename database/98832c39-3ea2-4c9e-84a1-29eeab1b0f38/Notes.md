@@ -1,1 +1,0 @@
-﻿[Hedley Donovan - Wikipedia](https://en.wikipedia.org/wiki/Hedley_Donovan)

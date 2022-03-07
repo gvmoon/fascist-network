@@ -1,1 +1,0 @@
-﻿[Clark Clifford - Wikipedia](https://en.wikipedia.org/wiki/Clark_Clifford)

@@ -1,1 +1,0 @@
-﻿[Dietrich Eckart - Wikipedia](https://en.wikipedia.org/wiki/Dietrich_Eckart)

@@ -1,1 +1,0 @@
-﻿[Avi Weiss - Wikipedia](https://en.wikipedia.org/wiki/Avi_Weiss)

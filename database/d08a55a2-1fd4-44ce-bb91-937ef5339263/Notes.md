@@ -1,1 +1,0 @@
-﻿[Twelve-step program - Wikipedia](https://en.wikipedia.org/wiki/Twelve-step_program#Twelve_Steps)

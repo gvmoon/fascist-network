@@ -1,1 +1,0 @@
-﻿[Aryan Republican Army - Wikipedia](https://en.wikipedia.org/wiki/Aryan_Republican_Army)

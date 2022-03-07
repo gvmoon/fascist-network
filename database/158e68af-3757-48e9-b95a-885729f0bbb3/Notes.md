@@ -1,1 +1,0 @@
-﻿[Constitution Party (United States) - Wikipedia](https://en.wikipedia.org/wiki/Constitution_Party_(United_States))

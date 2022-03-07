@@ -1,1 +1,0 @@
-﻿[Elon Musk - Wikipedia](https://en.wikipedia.org/wiki/Elon_Musk)

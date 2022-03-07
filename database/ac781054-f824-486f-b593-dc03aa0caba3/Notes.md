@@ -1,1 +1,0 @@
-﻿[Fritz Perls - Wikipedia](https://en.wikipedia.org/wiki/Fritz_Perls)

@@ -1,1 +1,0 @@
-﻿[Miles Romney - Wikipedia](https://en.wikipedia.org/wiki/Miles_Romney)

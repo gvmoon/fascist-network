@@ -1,1 +1,0 @@
-﻿[Presbyterianism - Wikipedia](https://en.wikipedia.org/wiki/Presbyterianism)

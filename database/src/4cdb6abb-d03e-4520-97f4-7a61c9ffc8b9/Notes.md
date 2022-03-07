@@ -1,0 +1,1 @@
+﻿[Hermann Göring - Wikipedia](https://en.wikipedia.org/wiki/Hermann_G%C3%B6ring)

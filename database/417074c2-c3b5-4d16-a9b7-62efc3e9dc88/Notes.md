@@ -1,1 +1,0 @@
-﻿[Gustav Krupp von Bohlen und Halbach - Wikipedia](https://en.wikipedia.org/wiki/Gustav_Krupp_von_Bohlen_und_Halbach)

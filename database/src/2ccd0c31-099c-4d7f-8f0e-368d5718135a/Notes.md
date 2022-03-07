@@ -1,0 +1,1 @@
+﻿[Charles Rosen (scientist) - Wikipedia](https://en.wikipedia.org/wiki/Charles_Rosen_(scientist))

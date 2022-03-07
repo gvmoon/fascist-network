@@ -1,1 +1,0 @@
-﻿[Ad Council - Wikipedia](https://en.wikipedia.org/wiki/Ad_Council)

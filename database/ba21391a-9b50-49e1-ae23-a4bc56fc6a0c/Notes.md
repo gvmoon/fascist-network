@@ -1,1 +1,0 @@
-﻿[Ulysses S. Grant - Wikipedia](https://en.wikipedia.org/wiki/Ulysses_S._Grant)

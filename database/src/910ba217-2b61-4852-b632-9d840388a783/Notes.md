@@ -1,0 +1,1 @@
+﻿[Barack Obama - Wikipedia](https://en.wikipedia.org/wiki/Barack_Obama)

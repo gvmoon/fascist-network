@@ -1,0 +1,1 @@
+﻿[Patriotic Alternative - Wikipedia](https://en.wikipedia.org/wiki/Patriotic_Alternative)

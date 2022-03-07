@@ -1,1 +1,0 @@
-﻿[David Hume - Wikipedia](https://en.wikipedia.org/wiki/David_Hume)

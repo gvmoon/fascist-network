@@ -1,0 +1,2 @@
+﻿https://en.wikipedia.org/wiki/Westminster_Theological_Seminary
+[List of Westminster Theological Seminary people - Wikipedia](https://en.wikipedia.org/wiki/List_of_Westminster_Theological_Seminary_people)

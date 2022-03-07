@@ -1,1 +1,0 @@
-﻿[Manuel Artime - Wikipedia](https://en.wikipedia.org/wiki/Manuel_Artime)

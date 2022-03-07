@@ -1,1 +1,0 @@
-﻿[Bill Gates - Wikipedia](https://en.wikipedia.org/wiki/Bill_Gates)

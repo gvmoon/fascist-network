@@ -1,1 +1,0 @@
-﻿[F. F. Bruce - Wikipedia](https://en.wikipedia.org/wiki/F._F._Bruce)

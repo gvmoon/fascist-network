@@ -1,1 +1,0 @@
-﻿[Mike Coffman - Wikipedia](https://en.wikipedia.org/wiki/Mike_Coffman)

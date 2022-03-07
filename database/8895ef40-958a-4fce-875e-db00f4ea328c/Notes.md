@@ -1,1 +1,0 @@
-﻿[Gerri Elliott - Wikipedia](https://en.wikipedia.org/wiki/Gerri_Elliott)

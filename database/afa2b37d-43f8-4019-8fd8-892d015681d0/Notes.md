@@ -1,1 +1,0 @@
-﻿[Guo Wengui - Wikipedia](https://en.wikipedia.org/wiki/Guo_Wengui)

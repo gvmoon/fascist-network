@@ -1,1 +1,0 @@
-﻿[Marion Margery Scranton - Wikipedia](https://en.wikipedia.org/wiki/Marion_Margery_Scranton)

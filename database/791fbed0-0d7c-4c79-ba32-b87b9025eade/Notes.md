@@ -1,1 +1,0 @@
-﻿[Jürgen Habermas - Wikipedia](https://en.wikipedia.org/wiki/J%C3%BCrgen_Habermas)

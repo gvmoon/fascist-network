@@ -1,1 +1,0 @@
-﻿[Robert M. Price - Wikipedia](https://en.wikipedia.org/wiki/Robert_M._Price)

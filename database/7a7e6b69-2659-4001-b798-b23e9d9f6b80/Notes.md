@@ -1,1 +1,0 @@
-﻿[John P. Walters - Wikipedia](https://en.wikipedia.org/wiki/John_P._Walters)

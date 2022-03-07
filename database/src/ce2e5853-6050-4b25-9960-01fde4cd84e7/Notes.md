@@ -1,0 +1,1 @@
+﻿[Barnard College - Wikipedia](https://en.wikipedia.org/wiki/Barnard_College)

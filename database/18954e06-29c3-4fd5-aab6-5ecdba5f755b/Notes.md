@@ -1,1 +1,0 @@
-﻿[Scott Brown (politician) - Wikipedia](https://en.wikipedia.org/wiki/Scott_Brown_(politician))

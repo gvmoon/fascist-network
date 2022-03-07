@@ -1,0 +1,1 @@
+﻿[Gale Norton - Wikipedia](https://en.wikipedia.org/wiki/Gale_Norton)

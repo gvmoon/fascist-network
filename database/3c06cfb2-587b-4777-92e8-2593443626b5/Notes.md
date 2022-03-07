@@ -1,1 +1,0 @@
-﻿[Aaron Director - Wikipedia](https://en.wikipedia.org/wiki/Aaron_Director)

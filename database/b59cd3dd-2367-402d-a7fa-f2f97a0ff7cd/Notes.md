@@ -1,1 +1,0 @@
-﻿[Janusz Korczak - Wikipedia](https://en.wikipedia.org/wiki/Janusz_Korczak)

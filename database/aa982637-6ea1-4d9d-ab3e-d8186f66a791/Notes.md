@@ -1,1 +1,0 @@
-﻿[Wilfred Bion - Wikipedia](https://en.wikipedia.org/wiki/Wilfred_Bion)

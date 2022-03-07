@@ -1,1 +1,0 @@
-﻿[Life (magazine) - Wikipedia](https://en.wikipedia.org/wiki/Life_(magazine))

@@ -1,1 +1,0 @@
-﻿[True Blue Crew - Wikipedia](https://en.wikipedia.org/wiki/True_Blue_Crew)

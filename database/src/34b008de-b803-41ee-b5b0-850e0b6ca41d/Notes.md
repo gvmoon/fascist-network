@@ -1,0 +1,1 @@
+﻿[New York Law School - Wikipedia](https://en.wikipedia.org/wiki/New_York_Law_School)

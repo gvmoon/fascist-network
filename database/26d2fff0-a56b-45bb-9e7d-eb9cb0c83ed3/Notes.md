@@ -1,1 +1,0 @@
-﻿[Jeune Nation - Wikipedia](https://en.wikipedia.org/wiki/Jeune_Nation)

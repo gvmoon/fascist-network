@@ -1,1 +1,0 @@
-﻿[Rocky Suhayda - Wikipedia](https://en.wikipedia.org/wiki/Rocky_Suhayda)

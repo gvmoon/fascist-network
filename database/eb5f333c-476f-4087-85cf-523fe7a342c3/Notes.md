@@ -1,1 +1,0 @@
-﻿[Alfred P. Sloan - Wikipedia](https://en.wikipedia.org/wiki/Alfred_P._Sloan)

@@ -1,1 +1,0 @@
-﻿https://projects.propublica.org/nonprofits/organizations/800835023

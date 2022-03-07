@@ -1,0 +1,1 @@
+﻿[John Kingman (businessman) - Wikipedia](https://en.wikipedia.org/wiki/John_Kingman_(businessman))

@@ -1,0 +1,1 @@
+﻿[Great Society - Wikipedia](https://en.wikipedia.org/wiki/Great_Society)

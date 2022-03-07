@@ -1,1 +1,0 @@
-﻿[John Brine - Wikipedia](https://en.wikipedia.org/wiki/John_Brine)

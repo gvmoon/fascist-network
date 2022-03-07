@@ -1,1 +1,0 @@
-﻿[Martin Heidegger - Wikipedia](https://en.wikipedia.org/wiki/Martin_Heidegger)

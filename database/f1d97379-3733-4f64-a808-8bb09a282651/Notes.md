@@ -1,1 +1,0 @@
-﻿[Bernie Sanders - Wikipedia](https://en.wikipedia.org/wiki/Bernie_Sanders)

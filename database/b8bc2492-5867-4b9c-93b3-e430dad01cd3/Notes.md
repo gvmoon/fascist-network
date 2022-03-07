@@ -1,1 +1,0 @@
-﻿[William P. Sommers - Wikipedia](https://en.wikipedia.org/wiki/William_P._Sommers)

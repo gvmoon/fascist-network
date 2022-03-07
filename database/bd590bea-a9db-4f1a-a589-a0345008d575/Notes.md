@@ -1,1 +1,0 @@
-﻿[Mark McCormack - Wikipedia](https://en.wikipedia.org/wiki/Mark_McCormack)

@@ -1,1 +1,0 @@
-﻿[William H. Walker (New York City politician) - Wikipedia](https://en.wikipedia.org/wiki/William_H._Walker_(New_York_City_politician))

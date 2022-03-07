@@ -1,0 +1,1 @@
+﻿[Gerald L. K. Smith - Wikipedia](https://en.wikipedia.org/wiki/Gerald_L._K._Smith)

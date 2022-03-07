@@ -1,1 +1,0 @@
-﻿[C. I. Scofield - Wikipedia](https://en.wikipedia.org/wiki/C._I._Scofield)

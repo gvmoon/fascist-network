@@ -1,1 +1,0 @@
-﻿[Henry Edwards (entomologist) - Wikipedia](https://en.wikipedia.org/wiki/Henry_Edwards_(entomologist))

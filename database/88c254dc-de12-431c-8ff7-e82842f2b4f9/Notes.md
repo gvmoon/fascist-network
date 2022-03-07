@@ -1,1 +1,0 @@
-﻿[Buddhism - Wikipedia](https://en.wikipedia.org/wiki/Buddhism)

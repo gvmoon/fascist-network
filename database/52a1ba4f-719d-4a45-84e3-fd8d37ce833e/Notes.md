@@ -1,1 +1,0 @@
-﻿[Bruce Babbitt - Wikipedia](https://en.wikipedia.org/wiki/Bruce_Babbitt)

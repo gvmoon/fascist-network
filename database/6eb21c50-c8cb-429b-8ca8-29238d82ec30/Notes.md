@@ -1,1 +1,0 @@
-﻿[New York University - Wikipedia](https://en.wikipedia.org/wiki/New_York_University)

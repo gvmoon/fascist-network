@@ -1,0 +1,1 @@
+﻿[William McKinley - Wikipedia](https://en.wikipedia.org/wiki/William_McKinley)

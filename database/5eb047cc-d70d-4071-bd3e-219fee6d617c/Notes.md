@@ -1,1 +1,0 @@
-﻿[Robert Lee Scott Jr. - Wikipedia](https://en.wikipedia.org/wiki/Robert_Lee_Scott_Jr.)

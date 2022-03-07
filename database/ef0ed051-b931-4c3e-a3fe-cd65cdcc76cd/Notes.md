@@ -1,1 +1,0 @@
-﻿[Laurel M. Lee - Wikipedia](https://en.wikipedia.org/wiki/Laurel_M._Lee)

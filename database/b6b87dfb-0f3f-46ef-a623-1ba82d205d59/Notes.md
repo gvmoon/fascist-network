@@ -1,1 +1,0 @@
-﻿[Joel Osteen - Wikipedia](https://en.wikipedia.org/wiki/Joel_Osteen)

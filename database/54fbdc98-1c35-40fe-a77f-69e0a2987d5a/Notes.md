@@ -1,1 +1,0 @@
-﻿[John Fox Slater - Wikipedia](https://en.wikipedia.org/wiki/John_Fox_Slater)

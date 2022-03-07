@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Davis_College_(New_York)

@@ -1,1 +1,0 @@
-﻿[Joe Pitts (Pennsylvania politician) - Wikipedia](https://en.wikipedia.org/wiki/Joe_Pitts_(Pennsylvania_politician))

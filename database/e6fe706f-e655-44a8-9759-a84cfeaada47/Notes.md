@@ -1,1 +1,0 @@
-﻿[Jared Kushner - Wikipedia](https://en.wikipedia.org/wiki/Jared_Kushner)

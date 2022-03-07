@@ -1,1 +1,0 @@
-﻿[Saud Nasser Al-Saud Al-Sabah - Wikipedia](https://en.wikipedia.org/wiki/Saud_Nasser_Al-Saud_Al-Sabah)

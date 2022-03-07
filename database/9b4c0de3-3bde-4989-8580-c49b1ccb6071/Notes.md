@@ -1,1 +1,0 @@
-﻿[Raymond Moley - Wikipedia](https://en.wikipedia.org/wiki/Raymond_Moley)

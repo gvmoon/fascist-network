@@ -1,1 +1,0 @@
-﻿[Nicholas Biddle - Wikipedia](https://en.wikipedia.org/wiki/Nicholas_Biddle)

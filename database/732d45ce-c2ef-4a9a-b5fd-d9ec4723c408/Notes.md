@@ -1,1 +1,0 @@
-﻿[John B. Stetson - Wikipedia](https://en.wikipedia.org/wiki/John_B._Stetson)

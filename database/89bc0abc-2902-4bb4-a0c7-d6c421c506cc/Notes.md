@@ -1,1 +1,0 @@
-﻿[Timothy McVeigh - Wikipedia](https://en.wikipedia.org/wiki/Timothy_McVeigh)

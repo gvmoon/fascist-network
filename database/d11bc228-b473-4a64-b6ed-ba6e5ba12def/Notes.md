@@ -1,1 +1,0 @@
-﻿[Jewish Institute for National Security of America - Wikipedia](https://en.wikipedia.org/wiki/Jewish_Institute_for_National_Security_of_America)

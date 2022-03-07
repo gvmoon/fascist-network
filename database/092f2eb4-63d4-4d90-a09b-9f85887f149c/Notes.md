@@ -1,1 +1,0 @@
-﻿[John Calvin - Wikipedia](https://en.wikipedia.org/wiki/John_Calvin)

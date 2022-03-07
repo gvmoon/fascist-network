@@ -1,1 +1,0 @@
-﻿[Ros Draper - Wikipedia](https://en.wikipedia.org/wiki/Ros_Draper)

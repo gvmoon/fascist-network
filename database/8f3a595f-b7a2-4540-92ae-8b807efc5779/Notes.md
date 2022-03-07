@@ -1,1 +1,0 @@
-﻿[Clive Day - Wikipedia](https://en.wikipedia.org/wiki/Clive_Day)

@@ -1,1 +1,0 @@
-﻿[Benson Idahosa - Wikipedia](https://en.wikipedia.org/wiki/Benson_Idahosa)

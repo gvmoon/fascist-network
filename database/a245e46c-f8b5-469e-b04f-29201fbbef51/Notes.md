@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/United_States_Department_of_Defense

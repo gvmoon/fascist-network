@@ -1,1 +1,0 @@
-﻿[Sam Harris - Wikipedia](https://en.wikipedia.org/wiki/Sam_Harris_(author))

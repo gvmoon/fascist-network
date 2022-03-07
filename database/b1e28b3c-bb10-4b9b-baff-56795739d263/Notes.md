@@ -1,1 +1,0 @@
-﻿[Heinz Spanknöbel - Wikipedia](https://en.wikipedia.org/wiki/Heinz_Spankn%C3%B6bel)

@@ -1,0 +1,1 @@
+﻿https://en.wikipedia.org/wiki/The_Gateway_Pundit#Jim_Hoft

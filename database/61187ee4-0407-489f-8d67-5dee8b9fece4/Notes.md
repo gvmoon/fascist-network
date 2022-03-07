@@ -1,1 +1,0 @@
-﻿[Richard Helms - Wikipedia](https://en.wikipedia.org/wiki/Richard_Helms)

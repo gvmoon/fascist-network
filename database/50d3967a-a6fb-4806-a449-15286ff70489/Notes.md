@@ -1,1 +1,0 @@
-﻿[Gerard C. Smith - Wikipedia](https://en.wikipedia.org/wiki/Gerard_C._Smith)

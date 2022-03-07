@@ -1,0 +1,1 @@
+﻿[Gateway Seminary - Wikipedia](https://en.wikipedia.org/wiki/Gateway_Seminary)

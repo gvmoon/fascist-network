@@ -1,1 +1,0 @@
-﻿[Otto von Habsburg - Wikipedia](https://en.wikipedia.org/wiki/Otto_von_Habsburg)

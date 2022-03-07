@@ -1,1 +1,0 @@
-﻿[Aryan Nations - Wikipedia](https://en.wikipedia.org/wiki/Aryan_Nations)

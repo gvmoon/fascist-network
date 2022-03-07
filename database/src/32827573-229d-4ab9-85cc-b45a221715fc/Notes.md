@@ -1,0 +1,1 @@
+﻿[Evangelical Wesleyan Church - Wikipedia](https://en.wikipedia.org/wiki/Evangelical_Wesleyan_Church)

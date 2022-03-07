@@ -1,1 +1,0 @@
-﻿[John Rees (journalist) - Wikipedia](https://en.wikipedia.org/wiki/John_Rees_(journalist))

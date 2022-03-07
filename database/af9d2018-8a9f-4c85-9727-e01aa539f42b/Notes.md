@@ -1,1 +1,0 @@
-﻿[Wilfred Trotter - Wikipedia](https://en.wikipedia.org/wiki/Wilfred_Trotter)

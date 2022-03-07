@@ -1,1 +1,0 @@
-﻿[Oral Roberts University - Wikipedia](https://en.wikipedia.org/wiki/Oral_Roberts_University)

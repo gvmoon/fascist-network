@@ -1,1 +1,0 @@
-﻿[Allen C. Beach - Wikipedia](https://en.wikipedia.org/wiki/Allen_C._Beach)

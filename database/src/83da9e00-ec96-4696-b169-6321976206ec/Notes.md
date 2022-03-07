@@ -1,0 +1,1 @@
+﻿[Ignatius of Loyola - Wikipedia](https://en.wikipedia.org/wiki/Ignatius_of_Loyola)

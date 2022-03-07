@@ -1,1 +1,0 @@
-﻿[Newton D. Baker - Wikipedia](https://en.wikipedia.org/wiki/Newton_D._Baker)

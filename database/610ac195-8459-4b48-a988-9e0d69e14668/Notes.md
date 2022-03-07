@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/Fellowship_of_the_New_Life

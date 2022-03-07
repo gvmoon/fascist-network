@@ -1,1 +1,0 @@
-﻿[Anton Chekhov - Wikipedia](https://en.wikipedia.org/wiki/Anton_Chekhov)

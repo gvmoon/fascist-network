@@ -1,1 +1,0 @@
-﻿[Reuven Rivlin - Wikipedia](https://en.wikipedia.org/wiki/Reuven_Rivlin)

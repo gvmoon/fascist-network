@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/National_Association_of_Evangelicals

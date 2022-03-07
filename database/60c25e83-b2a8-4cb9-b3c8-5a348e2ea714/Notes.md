@@ -1,1 +1,0 @@
-﻿[Alexander Bogdanov - Wikipedia](https://en.wikipedia.org/wiki/Alexander_Bogdanov)

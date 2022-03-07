@@ -1,1 +1,0 @@
-﻿[Ellsworth Kalas - Wikipedia](https://en.wikipedia.org/wiki/Ellsworth_Kalas)

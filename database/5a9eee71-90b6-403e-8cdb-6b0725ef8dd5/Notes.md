@@ -1,1 +1,0 @@
-﻿[Slater Fund - Wikipedia](https://en.wikipedia.org/wiki/Slater_Fund)

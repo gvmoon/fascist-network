@@ -1,1 +1,0 @@
-﻿[Gettr - Wikipedia](https://en.wikipedia.org/wiki/Gettr)

@@ -1,1 +1,0 @@
-﻿[Michelle Goldberg - Wikipedia](https://en.wikipedia.org/wiki/Michelle_Goldberg)

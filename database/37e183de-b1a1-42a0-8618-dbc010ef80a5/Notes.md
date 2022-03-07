@@ -1,1 +1,0 @@
-﻿[Auguste Comte - Wikipedia](https://en.wikipedia.org/wiki/Auguste_Comte)

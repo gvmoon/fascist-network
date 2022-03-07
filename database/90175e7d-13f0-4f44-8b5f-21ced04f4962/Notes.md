@@ -1,1 +1,0 @@
-﻿[Slavoj Žižek - Wikipedia](https://en.wikipedia.org/wiki/Slavoj_%C5%BDi%C5%BEek)

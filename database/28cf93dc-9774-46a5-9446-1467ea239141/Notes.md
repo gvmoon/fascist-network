@@ -1,1 +1,0 @@
-﻿[François de La Rocque - Wikipedia](https://en.wikipedia.org/wiki/Fran%C3%A7ois_de_La_Rocque)

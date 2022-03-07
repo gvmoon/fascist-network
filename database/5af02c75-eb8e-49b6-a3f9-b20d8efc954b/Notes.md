@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/New_York_State_Department_of_Financial_Services

@@ -1,0 +1,1 @@
+﻿[Temple University - Wikipedia](https://en.wikipedia.org/wiki/Temple_University)

@@ -1,0 +1,1 @@
+﻿[Facebook–Cambridge Analytica data scandal - Wikipedia](https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal)

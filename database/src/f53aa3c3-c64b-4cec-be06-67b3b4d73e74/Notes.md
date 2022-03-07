@@ -1,0 +1,1 @@
+﻿[Douglas Stuart (biblical scholar) - Wikipedia](https://en.wikipedia.org/wiki/Douglas_Stuart_(biblical_scholar))

@@ -1,1 +1,0 @@
-﻿[Canadian Philosophical Association - Wikipedia](https://en.wikipedia.org/wiki/Canadian_Philosophical_Association)

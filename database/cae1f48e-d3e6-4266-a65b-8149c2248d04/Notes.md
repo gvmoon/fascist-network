@@ -1,1 +1,0 @@
-﻿[Douglas Coe - Wikipedia](https://en.wikipedia.org/wiki/Douglas_Coe)

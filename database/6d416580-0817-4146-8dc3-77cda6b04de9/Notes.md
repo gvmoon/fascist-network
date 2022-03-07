@@ -1,1 +1,0 @@
-﻿[Howard Wolfson - Wikipedia](https://en.wikipedia.org/wiki/Howard_Wolfson)

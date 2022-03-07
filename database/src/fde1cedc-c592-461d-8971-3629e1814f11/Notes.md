@@ -1,0 +1,1 @@
+﻿[Juliette Gordon Low - Wikipedia](https://en.wikipedia.org/wiki/Juliette_Gordon_Low)

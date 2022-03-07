@@ -1,1 +1,0 @@
-﻿[Timothy S. Healy - Wikipedia](https://en.wikipedia.org/wiki/Timothy_S._Healy)

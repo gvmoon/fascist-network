@@ -1,1 +1,0 @@
-﻿[The Wall Street Journal - Wikipedia](https://en.wikipedia.org/wiki/The_Wall_Street_Journal)

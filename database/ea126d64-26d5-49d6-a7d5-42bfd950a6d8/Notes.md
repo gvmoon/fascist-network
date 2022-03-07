@@ -1,1 +1,0 @@
-﻿[Theodor von Oppolzer - Wikipedia](https://en.wikipedia.org/wiki/Theodor_von_Oppolzer)

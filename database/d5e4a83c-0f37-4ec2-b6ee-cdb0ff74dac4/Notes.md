@@ -1,1 +1,0 @@
-﻿[Stephen Miller (political advisor) - Wikipedia](https://en.wikipedia.org/wiki/Stephen_Miller_(political_advisor))

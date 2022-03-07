@@ -1,1 +1,0 @@
-﻿[Southern Baptist Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Southern_Baptist_Theological_Seminary)

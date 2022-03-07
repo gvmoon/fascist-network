@@ -1,1 +1,0 @@
-﻿[Samuel Sharpe (scholar) - Wikipedia](https://en.wikipedia.org/wiki/Samuel_Sharpe_(scholar))

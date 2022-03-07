@@ -1,0 +1,1 @@
+﻿[Jimmy Carter - Wikipedia](https://en.wikipedia.org/wiki/Jimmy_Carter)

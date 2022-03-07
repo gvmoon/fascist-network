@@ -1,0 +1,1 @@
+﻿[Fuller Theological Seminary - Wikipedia](https://en.wikipedia.org/wiki/Fuller_Theological_Seminary)

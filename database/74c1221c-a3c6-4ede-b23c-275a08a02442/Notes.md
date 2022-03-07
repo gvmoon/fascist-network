@@ -1,1 +1,0 @@
-﻿[Office of Naval Research - Wikipedia](https://en.wikipedia.org/wiki/Office_of_Naval_Research)

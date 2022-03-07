@@ -1,1 +1,0 @@
-﻿[Jonathan Falwell - Wikipedia](https://en.wikipedia.org/wiki/Jonathan_Falwell)

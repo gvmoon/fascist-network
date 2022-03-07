@@ -1,0 +1,1 @@
+﻿[Lewis B. Smedes - Wikipedia](https://en.wikipedia.org/wiki/Lewis_B._Smedes)

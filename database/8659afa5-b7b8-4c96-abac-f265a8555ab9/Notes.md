@@ -1,1 +1,0 @@
-﻿[Amway - Wikipedia](https://en.wikipedia.org/wiki/Amway)

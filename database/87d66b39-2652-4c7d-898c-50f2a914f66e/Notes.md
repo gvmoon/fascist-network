@@ -1,1 +1,0 @@
-﻿[Citizens for a Free Kuwait - Wikipedia](https://en.wikipedia.org/wiki/Citizens_for_a_Free_Kuwait)

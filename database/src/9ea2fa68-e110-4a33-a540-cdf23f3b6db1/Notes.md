@@ -1,0 +1,1 @@
+﻿[Oklahoma City bombing - Wikipedia](https://en.wikipedia.org/wiki/Oklahoma_City_bombing)

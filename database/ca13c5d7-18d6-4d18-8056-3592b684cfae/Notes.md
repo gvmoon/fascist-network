@@ -1,1 +1,0 @@
-﻿[Leopold Kronecker - Wikipedia](https://en.wikipedia.org/wiki/Leopold_Kronecker)

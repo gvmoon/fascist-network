@@ -1,1 +1,0 @@
-﻿[Eton Group - Wikipedia](https://en.wikipedia.org/wiki/Eton_Group)

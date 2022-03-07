@@ -1,1 +1,0 @@
-﻿[Jim VandeHei - Wikipedia](https://en.wikipedia.org/wiki/Jim_VandeHei)

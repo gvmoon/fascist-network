@@ -1,1 +1,0 @@
-﻿[Stephen A. Hayner - Wikipedia](https://en.wikipedia.org/wiki/Stephen_A._Hayner)

@@ -1,1 +1,0 @@
-﻿https://en.wikipedia.org/wiki/University_of_Nevada,_Las_Vegas

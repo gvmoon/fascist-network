@@ -1,1 +1,0 @@
-﻿[Immanuel Kant - Wikipedia](https://en.wikipedia.org/wiki/Immanuel_Kant)

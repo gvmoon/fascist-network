@@ -1,1 +1,0 @@
-﻿[Carlton Pearson - Wikipedia](https://en.wikipedia.org/wiki/Carlton_Pearson)

@@ -1,1 +1,0 @@
-﻿[Quill and Dagger - Wikipedia](https://en.wikipedia.org/wiki/Quill_and_Dagger)

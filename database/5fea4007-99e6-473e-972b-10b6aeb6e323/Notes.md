@@ -1,1 +1,0 @@
-﻿[Evangelical Presbyterian Church (United States) - Wikipedia](https://en.wikipedia.org/wiki/Evangelical_Presbyterian_Church_(United_States))

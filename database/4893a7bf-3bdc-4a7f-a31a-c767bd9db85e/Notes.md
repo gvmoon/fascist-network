@@ -1,1 +1,0 @@
-﻿[Jesse Ventura - Wikipedia](https://en.wikipedia.org/wiki/Jesse_Ventura)

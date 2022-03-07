@@ -1,1 +1,0 @@
-﻿[Middle Temple - Wikipedia](https://en.wikipedia.org/wiki/Middle_Temple)

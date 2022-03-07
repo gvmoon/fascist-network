@@ -1,1 +1,0 @@
-﻿[Sherwin B. Nuland - Wikipedia](https://en.wikipedia.org/wiki/Sherwin_B._Nuland)

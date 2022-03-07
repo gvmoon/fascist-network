@@ -1,1 +1,0 @@
-﻿[Jaime Guzmán - Wikipedia](https://en.wikipedia.org/wiki/Jaime_Guzm%C3%A1n)

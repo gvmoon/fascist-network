@@ -1,1 +1,0 @@
-﻿[Brad Parscale - Wikipedia](https://en.wikipedia.org/wiki/Brad_Parscale)

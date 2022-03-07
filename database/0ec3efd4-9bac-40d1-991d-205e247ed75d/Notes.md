@@ -1,1 +1,0 @@
-﻿[Old Norse religion - Wikipedia](https://en.wikipedia.org/wiki/Old_Norse_religion)

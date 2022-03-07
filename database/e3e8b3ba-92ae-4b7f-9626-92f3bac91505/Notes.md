@@ -1,1 +1,0 @@
-﻿[Christian Nationalist Crusade - Wikipedia](https://en.wikipedia.org/wiki/Christian_Nationalist_Crusade)

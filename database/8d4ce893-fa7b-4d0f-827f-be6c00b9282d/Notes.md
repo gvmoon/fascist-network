@@ -1,1 +1,0 @@
-﻿[Dominion theology - Wikipedia](https://en.wikipedia.org/wiki/Dominion_theology)

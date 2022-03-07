@@ -1,1 +1,0 @@
-﻿[C. S. Lewis - Wikipedia](https://en.wikipedia.org/wiki/C._S._Lewis)

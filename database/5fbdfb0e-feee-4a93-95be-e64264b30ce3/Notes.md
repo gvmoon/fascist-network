@@ -1,1 +1,0 @@
-﻿[Donald Sanborn - Wikipedia](https://en.wikipedia.org/wiki/Donald_Sanborn)

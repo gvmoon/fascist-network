@@ -1,1 +1,0 @@
-﻿[Harvard Divinity School - Wikipedia](https://en.wikipedia.org/wiki/Harvard_Divinity_School)

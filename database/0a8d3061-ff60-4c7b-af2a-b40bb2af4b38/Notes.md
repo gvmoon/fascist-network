@@ -1,1 +1,0 @@
-﻿[National Bolshevik Party - Wikipedia](https://en.wikipedia.org/wiki/National_Bolshevik_Party)

@@ -1,1 +1,0 @@
-﻿[The Birth of a Nation - Wikipedia](https://en.wikipedia.org/wiki/The_Birth_of_a_Nation)

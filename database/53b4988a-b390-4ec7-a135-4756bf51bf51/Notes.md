@@ -1,1 +1,0 @@
-﻿[Sarah Palin - Wikipedia](https://en.wikipedia.org/wiki/Sarah_Palin)

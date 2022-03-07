@@ -1,1 +1,0 @@
-﻿[Pilgrims Society - Wikipedia](https://en.wikipedia.org/wiki/Pilgrims_Society)

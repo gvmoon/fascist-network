@@ -1,1 +1,0 @@
-﻿[IBM Research - Wikipedia](https://en.wikipedia.org/wiki/IBM_Research)

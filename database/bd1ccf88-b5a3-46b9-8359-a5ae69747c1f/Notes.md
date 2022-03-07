@@ -1,1 +1,0 @@
-﻿[Civil Cooperation Bureau - Wikipedia](https://en.wikipedia.org/wiki/Civil_Cooperation_Bureau)
