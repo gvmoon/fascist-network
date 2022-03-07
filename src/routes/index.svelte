@@ -2,8 +2,9 @@
   //import "@carbon/charts/styles.min.css";
   //import "carbon-components/css/carbon-components.min.css";
 
+  import { ForceGraph } from "$lib/src/ForceGraph";
   import thoughts from "$lib/database/dist/thoughts.json";
-  //import links from '$lib/database/dist/links.json'
+  import links from "$lib/database/dist/links.json";
   //import attachments from '$lib/database/attachments.js'
 
   import { afterUpdate, beforeUpdate, onMount } from "svelte";
@@ -60,6 +61,44 @@
 
   onMount(() => {
     console.log("the component has mounted");
+
+    // take first 100 thoughts
+    const limitedThoughts = thoughts.slice(0, 100);
+    const thoughtsById = limitedThoughts.reduce((acc, thought) => {
+      acc[thought.Id] = thought;
+      return acc;
+    }, {});
+
+    const thoughtIds = new Set(Object.keys(thoughtsById));
+    const linksToThoughts = links.filter(link => {
+      return thoughtIds.has(link.ThoughtIdA) && thoughtIds.has(link.ThoughtIdB);
+    });
+
+    const graph = {
+      nodes: limitedThoughts.map(thought => ({
+        id: thought.Name,
+        group: thought.TypeId
+      })),
+      links: linksToThoughts.map(link => ({
+        source: thoughtsById[link.ThoughtIdA].Name,
+        target: thoughtsById[link.ThoughtIdB].Name,
+        value: 10
+      }))
+    };
+
+    console.log(graph);
+
+    const chart = ForceGraph(graph, {
+      nodeId: d => d.id,
+      nodeGroup: d => d.group,
+      nodeTitle: d => `${d.id}\n${d.group}`,
+      linkStrokeWidth: l => Math.sqrt(l.value),
+      height: 600,
+      invalidation: new Promise(resolve => resolve())
+    });
+
+    document.getElementById("fdg").appendChild(chart);
+    console.log("chart", chart);
   });
 
   afterUpdate(() => {
@@ -119,6 +158,8 @@
     margin: 1rem;
   }
 </style>
+
+<div id="fdg" />
 
 <!--search all node name strings-->
 <Search placeholder="Search network" value="Fascism" />
