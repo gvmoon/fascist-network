@@ -62,12 +62,21 @@
   onMount(() => {
     console.log("the component has mounted");
 
-    // take first 100 thoughts
-    const limitedThoughts = thoughts.slice(0, 100);
+    //take first 100 thoughts
+    //const limitedThoughts = thoughts.slice(0, 500);
+    //const thoughtsById = limitedThoughts.reduce((acc, thought) => {
+    //  acc[thought.Id] = thought;
+    //  return acc;
+    //}, {});
+
+    // take random 500 thoughts
+    const shuffledThoughts = thoughts.sort(() => 0.5 - Math.random());
+    const limitedThoughts = shuffledThoughts.slice(0, 1000);
     const thoughtsById = limitedThoughts.reduce((acc, thought) => {
       acc[thought.Id] = thought;
       return acc;
     }, {});
+
 
     const thoughtIds = new Set(Object.keys(thoughtsById));
     const linksToThoughts = links.filter(link => {
@@ -88,12 +97,16 @@
 
     console.log(graph);
 
+    // select an svg element with d3, will function as canvas for graph
+
+
     const chart = ForceGraph(graph, {
       nodeId: d => d.id,
       nodeGroup: d => d.group,
       nodeTitle: d => `${d.id}\n${d.group}`,
       linkStrokeWidth: l => Math.sqrt(l.value),
-      height: 600,
+      height: window.innerHeight,
+      width: window.innerWidth,
       invalidation: new Promise(resolve => resolve())
     });
 
@@ -157,30 +170,13 @@
     bottom: 0;
     margin: 1rem;
   }
+
 </style>
 
 <div id="fdg" />
 
-<!--search all node name strings-->
-<Search placeholder="Search network" value="Fascism" />
-
-<!--radio to select between graph types
-<RadioButtonGroup selected="network">
-  <RadioButton labelText="Network" value="network" />
-  <RadioButton labelText="Timeline" value="timeline" />
-  <RadioButton labelText="Tree" value="tree" />
-</RadioButtonGroup>-->
-
 <!--index and filter-->
-<!-- <Filter on:event={handleEvent}/> -->
 <Filter />
-
-<!--graphs-->
-<!--<Tree />-->
-<!--<Timeline />-->
-<!--<Network />-->
-<!--<Circle />-->
-<!--<Box />-->
 
 <!--Selected thought information-->
 <Info />
